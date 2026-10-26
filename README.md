@@ -1,5 +1,17 @@
 # The Pessimal Caper
 
+## Recovered planning material
+
+The author has now supplied [the brainstorming and provisional outline](the-pessimal-caper-brainstorm.md). **Use that file as the current planning record.** It covers the premise and tone, 1940 Hotel Beauchamp setting, characters and relationships, necklace mystery and twists, zombie/orchestra/scientist subplot, NaNoWriMo structure, detailed Act I chapters 1–7, broad Acts II/III, Jack's retrospective narration, proposed opening lines, and the Chinese-speaking listener/werewolves epilogue.
+
+The supplied file is preserved byte-for-byte. Its source is a conversation compilation that partly relies on a retained summary, not a complete transcript; its provenance labels are retained rather than independently re-certified. Confirmed decisions, tentative names, assistant suggestions, and unresolved questions remain distinct. Chapters 8–30 have no newly invented chapter breakdown.
+
+Continuity questions remain open, including hotel-only staging versus Act I excursions, necklace inheritance and custody, the scientist's purpose and outbreak resolution, name variants, and the final Chinese wording. No opening proposal has been selected.
+
+The earlier capture below is retained intact for provenance. Its “unrecovered” statements describe the initial limited source access and are superseded wherever the supplied planning file recovers that material.
+
+---
+
 Working notes for a comic detective novel. This is a provisional planning record, not a manuscript.
 
 ## Source and status
