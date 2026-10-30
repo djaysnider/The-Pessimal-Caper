@@ -1,3 +1,5 @@
+# Running-Gags
+
 ## 1. Necklace mystery: three distinct layers
 
 **CONFIRMED — Apparent premise:** Sally's late mother's necklace is a cherished family heirloom reputed to be cursed. Peyton claims she wants to protect it, but wants to steal it. Jack suggests substituting a convincing duplicate. Peyton engages Luk. The swap has occurred by the end of Chapter 7, when Jack examines the necklace with Charles and discovers a fake.

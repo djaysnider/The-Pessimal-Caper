@@ -1,3 +1,5 @@
+# Notes
+
 ## Narration, chronology and frame
 
 **CONFIRMED** — Keep Jack as the **sole first-person narrator**; no switches to third-person or other POVs. He can narrate scenes he was not present for, as a man reconstructing a past case from interviews, deductions, and hearsay. He already tells elaborate stories about prior cases; the whole novel may be one more such account. His authority is that of an opinionated storyteller, not an omniscient camera. He is earnest, not consciously genre-savvy.

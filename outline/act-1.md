@@ -1,8 +1,8 @@
-## Detailed Act I outline — November 1–7
+# Detailed Act I outline — November 1–7
 
 The seven chapter descriptions below preserve the author's wording verbatim, including original spellings and HTML entity remnants normalized only for readability. Additional notes are clearly marked.
 
-### Chapter 1 — Jack Chase's office
+## Chapter 1 — Jack Chase's office
 
 **AUTHOR'S WORDING:** “Chapter 1. Jack Chase's office ... meet Jack and Peyton ... learn the case”
 
@@ -10,7 +10,7 @@ The seven chapter descriptions below preserve the author's wording verbatim, inc
 
 **ASSISTANT SUGGESTION** — Working chapter label **“The Client.”**
 
-### Chapter 2 — Hotel Beauchamp
+## Chapter 2 — Hotel Beauchamp
 
 **AUTHOR'S WORDING:** “Chapter 2. Hotel Beauchamp ... meet Reggie and Eugene ... learn the location”
 
@@ -18,7 +18,7 @@ The seven chapter descriptions below preserve the author's wording verbatim, inc
 
 **ASSISTANT SUGGESTION** — Working chapter label **“The Hotel Beauchamp.”**
 
-### Chapter 3 — Shopping in the city
+## Chapter 3 — Shopping in the city
 
 **AUTHOR'S WORDING:** “Chapter 3. Shopping in the city ... meet Sally and Charles Montana ... learn the circumstances”
 
@@ -26,7 +26,7 @@ The seven chapter descriptions below preserve the author's wording verbatim, inc
 
 **ASSISTANT SUGGESTION** — Working chapter label **“A Family Affair.”**
 
-### Chapter 4 — Jack arrives
+## Chapter 4 — Jack arrives
 
 **AUTHOR'S WORDING:** “Chapter 4. Jack arrives at the hotel, meets Reggie ... introduce "Slugger" and Luk See ... start setting up something mysterious. Reggie shows him where the jewels are kept. Jack hypothesizes ways to steal them, good and bad. Slugger and Luk overhear him.”
 
@@ -34,7 +34,7 @@ The seven chapter descriptions below preserve the author's wording verbatim, inc
 
 **ASSISTANT SUGGESTION** — Working chapter label **“The Professional Opinion.”**
 
-### Chapter 5 — Ballroom dispute
+## Chapter 5 — Ballroom dispute
 
 **AUTHOR'S WORDING:** “Chapter 5. Whetherby confronts Maestro Bellamy about needing access to the ballroom to set up for the ball, but Bellamy is evasive and insists the band is still rehearsing and can't be interrupted. He promises to give them the room back in plenty of time to set out silverware or whatever it is they do while he makes art.”
 
@@ -42,7 +42,7 @@ The seven chapter descriptions below preserve the author's wording verbatim, inc
 
 **ASSISTANT SUGGESTION** — Working chapter label **“The Maestro's Prerogative.”**
 
-### Chapter 6 — Debutantes arrive
+## Chapter 6 — Debutantes arrive
 
 **AUTHOR'S WORDING:** “Chapter 6. Sally and her father arrive, we meet the other debutantes and get the idea there's a conspiracy involving Sally's family.”
 
@@ -50,7 +50,7 @@ The seven chapter descriptions below preserve the author's wording verbatim, inc
 
 **ASSISTANT SUGGESTION** — Working chapter label **“The Debutantes.”**
 
-### Chapter 7 — The discovery
+## Chapter 7 — The discovery
 
 **AUTHOR'S WORDING:** “Jack meets the Montanas, says he's been hired by her aunt to help guard the family jewels. Charles is grateful and offers to show them to him. We discover the necklace has been stolen and replaced with a fake.”
 
