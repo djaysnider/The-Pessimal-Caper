@@ -1,7 +1,7 @@
 # The Pessimal Caper — Act II Working Outline
 
-**Status:** NaNoWriMo writing scaffold, not a locked plot.  
-**Scope:** Chapters 8–23 (16 chapters × ~1,667 words = ~26,672 words).  
+Chapters 8–23 (16 chapters × ~1,667 words = ~26,672 words).  
+
 **Act III:** Deliberately not outlined yet. Discover and rethink it during drafting.
 
 ## Working approach
@@ -18,7 +18,7 @@ Jack examines the substituted necklace. Charles Montana is baffled, Sally suspic
 
 ### 9 — The Usual Suspects
 
-Jack questions baseball celebrity Slugger McGraw and his old adversary Luk See, both of whom overheard his earlier theft theories. Introduce a menacing, Wilmer-style hired gunsel who warns Jack off the case. Jack observes: **“I knew he'd be trouble in two chapters.”** The gunsel's employer is undecided.
+Jack questions baseball celebrity Slugger Slattery and his old adversary Luk See, both of whom overheard his earlier theft theories. Introduce a menacing, Wilmer-style hired gunsel who warns Jack off the case. Jack observes: **“I knew he'd be trouble in two chapters.”** The gunsel's employer is undecided.
 
 ### 10 — The Other Conspiracy / First Harmless Zombie
 
@@ -83,6 +83,8 @@ Jack and Reggie connect the basement experiment, radiation, zombification, and t
 ### 23 — Everything Explained, Nothing Solved
 
 The debutantes' conspiracy is a surprise singer; Peyton is the thief behind Luk; the orchestra is undead; Bellamy has been keeping it playing to prevent attacks; the scientist's dog experiment is the source; the necklace offers protection. Wetherby needs the ballroom for the ball and guests are assembling. **Most subplot mysteries are revealed, but their consequences remain unresolved.** Stop here: no premature Act III blueprint.
+
+Act 2 should end with Pierce roughing up Jack to get him off the case.  Jack is tied up in a basement next to an old grandfather clock and gets rescued by Sally ... the opposite of the nancy drew plot he'd imagined.
 
 ## Continuity and running-gag notes
 
