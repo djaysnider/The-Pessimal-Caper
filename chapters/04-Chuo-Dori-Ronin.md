@@ -64,7 +64,7 @@ Reggie was still processing, but nodded for me to ask my questions.
 
 “Who has access to the office?”
 
-“Just Mr. Whetherby and Mr. Carson, the night manager.”
+“Just Mr. Wetherby and Mr. Carson, the night manager.”
 
 “Yeah, but I bet the door has a cheesy lock.”
 
@@ -72,13 +72,13 @@ Reggie was still processing, but nodded for me to ask my questions.
 
 “Who has the combination to the safe?”
 
-“Just the manager, the hotel detective, plus the night manager.”
+“Just Weatherby, Carson, and the hotel detective, Mr. Pierce.”
 
 “… and if I had $50 bucks?”
 
 He smiled. “… plus you.”
 
-“Is Pearson still losing with the ponies these days?”
+“Is Pierce still losing with the ponies these days?”
 
 “He’s down $65 this week; $117.50 for the month.”
 
