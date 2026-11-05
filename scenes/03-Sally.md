@@ -1,12 +1,12 @@
-# CHAPTER 3. (SALLY MONTANA)
+# CHAPTER 3. SALLY MONTANA
 
-Like any red-blooded, American male, I hate shopping. Always have. I've been shot four times, stabbed three, poisoned once, and hit in the head with a sap so many times that I’ve got a permanent indentation.  Nothing, however, gets my blood boiling faster than the idea of spending an afternoon in a department store with a woman who won’t know what she wants until she's seen everything she doesn't.
+Like any red-blooded American male, I hate shopping. Always have. I've been shot four times, stabbed three, poisoned once, and hit in the head with a sap so many times that I’ve got a permanent indentation.  Nothing, however, gets my blood boiling faster than the idea of spending an afternoon in a department store with a woman who won’t know what she wants until she's seen everything she doesn't.
 
-I’m a man.  I go to the store because I need something.  If I need multiple things, I make a list.  I buy things from the list, check them off, pay, and leave.  A woman, on the other hand, goes into a store because she “needs something,” finds it, decides she doesn't like it, finds something else, decides she liked the first thing better, then buys a third thing because the salesgirl said it was fashionable. By the time she's finished, the first thing has gone out of fashion, the third thing has sold out, and the salesgirl has retired to Florida.
+I’m a man.  I go to the store because I need something.  If I need multiple things, I make a list.  I buy what's on the list, check it off, pay, and leave.  A woman, on the other hand, goes into a store because she “needs something,” finds it, decides she doesn't like it, finds something else, decides she liked the first thing better, then buys a third thing because the salesgirl said it was fashionable. By the time she's finished, the first thing has gone out of fashion, the third thing has sold out, and the salesgirl has retired to Florida.
 
 Pinkerton’s, as near as I can figure, is part of a conspiracy between clothing manufacturers and people who own mirrors. Every year some secret committee must meet in their stockroom, see what didn’t sell as well as expected, and then put together a show featuring those clothes, declaring whatever you bout last year was wrong, and an affront to civilization. This year, apparently the message is that skirts are too long, hats are too small, lapels are too wide, and every woman in America needs to dress like a lampshade somebody's grandmother won in a raffle.
 
-I spotted the Montanas in the corner salon, where girl after girl walked paraded in and out of the room in every sort of gown imaginable, while little Sally looked absolutely enthralled and her father, Charles, grew paler with each subsequent price reveal.  I stayed close by, hoping to get a chance to talk to both of them outside of the hotel, where nobody would see us together.
+I spotted the Montanas in the corner salon, where girl after girl walked paraded in and out of the room in every sort of gown imaginable. At the same time, little Sally looked absolutely enthralled and her father, Charles, grew paler with each subsequent price reveal.  I stayed close by, hoping to get a chance to talk to both of them outside of the hotel, where nobody would see us together.
 
 As I stood there, in the middle of the men’s department, at least four times a salesman with a tape measure around his neck walked up to me and shook his head as if what I was wearing had personally offended his family.  I don’t understand the mentality.  I’ve owned this suit for twelve years.  It’s a good suit.  The pockets are always right where I left them, the buttons function as expected, and there are no bullet or knife holes in it, making it “lucky.”
 
@@ -22,9 +22,9 @@ The man smiled and began making nervous gestures with his hands. “Well, sir �
 
 “That much is obvious, yes.” He shrugged in half apology.
 
-“Look, if it will make you happy, you can sell me a pair of socks.  Do you have any those that are in season?”
+“Look, if it will make you happy, you can sell me a pair of socks.  Do you have any that are in season?”
 
-“With apologies, hosiery is on the second floor, past the accessories, next to the ties, across the asile from the cologne.  I am sure there is a salesman there who can—”
+“With apologies, hosiery is on the second floor, past the accessories, next to the ties, across the aisle from the cologne.  I am sure there is a salesman there who can—”
 
 “I’m not getting anywhere near socks until someone has tried to sell me a belt, wallet, tie, and bottle of aftershave, am I?”
 
@@ -32,9 +32,9 @@ The man merely smiled.
 
 “I hate shopping.”
 
-Sally had apparently picked out the hat for the evening and had moved on to shoes. Now I knew something about shoes from two ex-wives, who would spend endless hours picking out shoes that were just the right style for that year, just the right color to match or complement exactly one outfit in her closet that she never wore but swore she would now that she had the perfect shoes to go with it.  Inevitably she wouldn’t, and when pressed as to why we spent enough money to buy a new car on shoes to resurrect an outfit she still has worn, she would begrudgingly admit it was because the shoes hurt her feet.  Sally at least appeared more sensible than that.
+Sally had apparently picked out the hat for the evening and had moved on to shoes. Now I knew something about shoes from two ex-wives, who would spend endless hours picking out shoes that were just the right style for that year, just the right color to match or complement exactly one outfit in her closet that she never wore but swore she would now that she had the perfect shoes to go with it.  Inevitably, she wouldn’t, and when pressed on why we spent enough money to buy a new car on shoes to resurrect an outfit she still hadn't worn, she would begrudgingly admit it was because the shoes hurt her feet.  Sally at least appeared more sensible than that.
 
-I waited until they exited the salon, Sally beaming with pride, her father looking like he realized he just realized he had made a Faustian bargain when he promised his little girl anything she wanted.
+I waited until they exited the salon, Sally beaming with pride, her father looking like he'd just realized he had made a Faustian bargain when he promised his little girl anything she wanted.
 
 “Mr. Montana, name’s Jack Chase.  Your sister-in-law Peyton hired me.”
 
@@ -52,7 +52,7 @@ I waited until they exited the salon, Sally beaming with pride, her father looki
 
 “Yes, there was the hotel detective, a Mr. Pierce.”
 
-My heart dropped to my shoes. “Not, Alistair Pierce.”
+My heart dropped to my shoes. “Not Alastair Pierce.”
 
 “I believe it was, yes.  Do you know him?”
 
@@ -64,31 +64,31 @@ My heart dropped to my shoes. “Not, Alistair Pierce.”
 
 “Ah, yes, I can see where that would rather complicate things.”
 
-He wasn’t wrong.  Pierce was a brawler known for beating confessions of suspects and persuading witnesses they saw exactly what he needed them to see.  Not the kind of person I’d expect to be investigating which guests stole the complimentary shampoo bottles.
+He wasn’t wrong.  Pierce was a brawler known for beating confessions out of suspects and persuading witnesses they saw exactly what he needed them to see.  Not the kind of person I’d expect to be investigating which guests stole the complimentary shampoo bottles.
 
-“When are you planning to retrieve the necklace?”
+“When are you getting the necklace from the hotel safe?”
 
-“I should think around 4 o’clock Saturday afternoon while Sally is dressing.”
+“I had planned for 4 o’clock Saturday afternoon, while Sally is dressing.”
 
 “Nice dress?”
 
-“Cerulean.”
+“I'm told it's Cerulean.”
 
 “What’s that?”
 
-“Expensive blue, I gather.  These salespeople seem to speak in their own language.”
+“A rather expensive shade of blue, from what I gather.  These salespeople seem to speak in their own language.”
 
-“What’s the actual value of the necklace.”
+“What’s the actual value of the necklace?”
 
 “Oh, I’m sure I don’t know.  It’s very old and has been in my family for generations. There are … legends … but I’m sure you aren’t the type to believe in those.”
 
 “You’d be surprised at some of the stuff I’ve seen.”  I thought for a minute.  “Do you have any particular enemies?  People you might have crossed at some point who might be looking for payback.”
 
-Montana chuckled. “Mr. Chase, I’m a pediatric dentist.  While I can imagine there are some children who might hold a grudge over having a brace put on or a tooth extracted? I assure you I have no enemies of note.”
+Montana chuckled. “Mr. Chase, I’m a pediatric dentist.  While I can imagine some children might hold a grudge over having a brace put on or a tooth extracted, I assure you I have no enemies of note.”
 
 “What about Peyton? She obviously suspects something or someone, enough to hire me.”
 
-“Well, I suspect Peyton does have quite a number of people who dislike her.”
+“Well, I suspect Peyton does have quite several people who dislike her.”
 
 “I wouldn’t put it past half the society dames.”
 
@@ -116,9 +116,9 @@ A cloud seemed to settle over the ladies' wear department.
 
 Sally forced a smile with no actual joy onto her face. “I suppose so.”
 
-I filed that little reaction away in the back of my head to come back to later.
+I filed that little reaction away in the back of my head to revisit later.
 
-“Alright, Mr. Montana, I’ll leave you two to the fudge.  Remember, if we bump into each other at the hotel, pretend we don’t know each other.  If we’re introduced, then we’ve just met.  If you see anything or anyone suspicious – taking an interest in the necklace or asking a lot of strange questions about your schedule or security precautions – tell Peyton or Sally here and let them point them out to me.  Above all, if you suspect someone, don’t try to handle it yourself.  That’s my job.”
+“Alright, I’ll leave you two to the fudge. Remember, if we bump into each other at the hotel, you don't know me.  If you see anything suspicious – someone taking an interest in the necklace or asking a lot of strange questions – tell Sally here and let her tell me. Above all, remember, if you suspect someone, don’t try to handle it yourself.  Leave the rough suff to me.”
 
 “Fair enough, sir,” Montana smiled and nodded. “What will you do in the meantime?”
 
@@ -126,4 +126,4 @@ I filed that little reaction away in the back of my head to come back to later.
 
 “Seems frightfully difficult.”
 
-“So is whistling with a mouth full of crackers, but I know a few tricks.”
+“So is whistling 'Sugar Foot Stomp' with a mouth full of crackers, but I know a few tricks.”
