@@ -22,7 +22,7 @@ I pretended to be unimpressed, grabbed a cigarette from the box on the corner of
 
 “My niece, Sally Montana, is having her coming out this weekend at a debutante gala.”
 
-Now my hackles were up. Redheads were strike one; debutante balls were a swing-and-miss strike two. If the words "ventriloquist dummy" or "banjo" came out of her mouth, I'd throw her out on the street. The only reason I hadn't yet was that she was dangling two months' rent in front of my face. The last thing I needed was to be trapped at a debutante ball, which is what happens when a rich couple discovers they’ve spent eighteen years raising a daughter and decide the only sensible thing to do is invite four hundred strangers over to inspect her. I'd done that dance one too many times. It never pans out like you hope, believe me.  
+Now my hackles were up. Redheads were strike one; debutante balls were a swing-and-miss strike two. If the words "ventriloquist dummy" or "banjo" came out of her mouth, I'd throw her out on the street. The only reason I hadn't yet was that she was dangling three months' rent in front of my face. The last thing I needed was to be trapped at a debutante ball, which is what happens when a rich couple discovers they’ve spent eighteen years raising a daughter and decide the only sensible thing to do is invite four hundred strangers over to inspect her. I'd done that dance one too many times. It never pans out like you hope, believe me.  
 
 “Sorry, not interested,” I said, blowing smoke toward the door.
 
@@ -32,7 +32,7 @@ She sighed, bored with my stamina.  “You see, Sally will be coming into her in
 
 None of the warning signs were registering with me.  Like the sap she took me for, I just saw the money suspended between her well-manicured fingers.  As near as I could tell, this dame didn't appear to be the type to give a damn what happened to her niece or how stupid her brother-in-law looked having the family jewels heisted in public. Instead, I just shrugged and did my best impression of disinterested.
 
-“Pass,” I said, staring at four months’ rent dangling inches from my face.
+“Pass,” I said, staring at Andrew Jackson dangling inches from my nose.
 
 The dame didn't slow the pitch for a minute. “I just thought, well, maybe if someone like you were there, well, then surely nobody would try anything unwholesome and spoil my niece's big weekend. Surely, you see my meaning.”
 
@@ -50,7 +50,7 @@ Oddly enough, cursed family jewelry wasn’t on my list, though in hindsight, it
 
 “My niece and her father will be arriving in the city tomorrow and staying at the hotel to help set up the ball before Saturday.  He'll bring the jewels, which will be kept in the hotel safe until they are unveiled at the ball.  I want you there to case the joint, scope out the most obvious suspects, and foil any attempts to steal the Green Destiny. I believe I’ve met your fee for three days.  Consider the fourth a paid day off should you be successful.”
 
-“The Beauchamp has a pretty competent hotel detective.  Why don't you just use him?”
+“I'm sue the Beauchamp has a competent hotel detective.  Why don't you just use him?”
 
 “Well, for one thing, this requires a certain degree of secrecy and discretion.  I can't have people knowing whom I'm watching and whom I am associating with. Nobody must find out we even know each other, much less see us together in public.”
 
@@ -64,13 +64,13 @@ She considered this for a moment.  “Fine.  In addition to your rate, expenses,
 
 “Technically, you just wagered $200 that I will screw this up.” I tried not to laugh. “Now you sound like my mother. Alright.  I'll take the job. Who else knows you've hired me?”
 
-“Just my brother-in-law and his niece.  I don't trust anyone else.”
+“Just my brother-in-law and my niece.  I don't trust anyone else.”
 
 “That's smart.  Okay, where's the necklace now, and what time does it arrive?”
 
-“It's still at my brother-in-law's house.  He and my niece will check in early tomorrow afternoon. He’s planning to leave the necklace in the hotel safe, then take Sally dress shopping. Most of the families will arrive on Friday morning so the wives can decorate and the husbands can play golf, or whatever it is men do when they're trying to impress eachother.”
+“It's still at my brother-in-law's house.  He and my niece will check in early tomorrow afternoon. He’s planning to leave the necklace in the hotel safe, then take Sally dress shopping. Most of the families will arrive on Friday morning so the wives can decorate and the husbands can play golf, or whatever it is men do when they're trying to impress each other.”
 
-I thought through the timetimetable and considered a few scenarios. “There are any number of ways to steal a necklace from a hotel safe, but broad daylight, with the full hotel staff on duty, right after it arrives and few people know it’s there, is unlikely if they’ve got any sense.  I’m pretty sure it’s safe until the night shift comes on, at least.”
+I thought through the timetable and considered a few scenarios. “There are any number of ways to steal a necklace from a hotel safe, but broad daylight, with the full hotel staff on duty, right after it arrives and few people know it’s there, is unlikely if they’ve got any sense.  I’m pretty sure it’s safe until the night shift comes on, at least.”
 
 “So, what will you do?”
 

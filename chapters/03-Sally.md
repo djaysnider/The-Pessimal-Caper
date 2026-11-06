@@ -64,7 +64,7 @@ My heart dropped to my shoes. “Not Alastair Pierce.”
 
 “Ah, yes, I can see where that would rather complicate things.”
 
-He wasn’t wrong.  Pierce was a brawler known for beating confessions out of suspects and persuading witnesses they saw exactly what he needed them to see.  Not the kind of person I’d expect to be investigating which guests stole the complimentary shampoo bottles.
+He wasn’t wrong.  Pierce was a brawler known for beating confessions out of suspects and persuading witnesses they saw exactly what he needed them to see.  Not the kind of person I’d expect to be investigating which guests stole a bath towel.
 
 “When are you getting the necklace from the hotel safe?”
 
@@ -84,7 +84,7 @@ He wasn’t wrong.  Pierce was a brawler known for beating confessions out of su
 
 “You’d be surprised at some of the stuff I’ve seen.”  I thought for a minute.  “Do you have any particular enemies?  People you might have crossed at some point who might be looking for payback.”
 
-Montana chuckled. “Mr. Chase, I’m a pediatric dentist.  While I can imagine some children might hold a grudge over having a brace put on or a tooth extracted, I assure you I have no enemies of note.”
+Montana chuckled. “Mr. Chase, I’m a dentist -- mostly I treat children.  While I can imagine some children might hold a grudge over having a brace put on or a tooth extracted, I assure you I have no enemies of note.”
 
 “What about Peyton? She obviously suspects something or someone, enough to hire me.”
 

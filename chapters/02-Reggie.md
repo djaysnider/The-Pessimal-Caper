@@ -112,7 +112,7 @@ Eugene stared at him expectantly.
 
 The gentleman pointed to his ticket.
 
-Reggie reached around and grabbed it from him.  “Good afternoon, sir. You are in Room 1227.  I took your luggage up earlier.  I was just headed that way if you would care to wait one second.”
+Reggie reached around and grabbed it from him.  “Good morning, sir. You are in Room 1227.  I took your luggage up earlier.  I was just headed that way if you would care to wait one second.”
 
 The gentleman smiled and walked over toward the elevators.
 
@@ -184,7 +184,7 @@ A tall, thin gentleman in a battered overcoat entered the lobby. He wore a crush
 
 Reggie smiled.
 
-“Good afternoon, sir. Checking out?”
+“Good morning, sir. Checking out?”
 
 The gentleman shook his head.
 
