@@ -36,7 +36,7 @@ Nothing.  The band continued to play.  After the first verse, Bellamy’s head p
 
 “I don’t think so, Maestro. Could I trouble you to come out here and at least face me, sir?”
 
-He appeared to think about this for far too long, then reluctantly heparted the curtains just enough to step through them, all but his right arm, which he defiantly kept back behind the curtain.  The band continued to play.  He was obviously still directing them while talking to me.
+He appeared to think about this for far too long, then reluctantly he parted the curtains just enough to step through them, all but his right arm, which he defiantly kept back behind the curtain.  The band continued to play.  He was obviously still directing them while talking to me.
 
 “Any chance you could give me your undivided attention, Maestro?”
 
@@ -44,7 +44,7 @@ He appeared to think about this for far too long, then reluctantly heparted the 
 
 “Yes, that’s a bit odd to me as well.  Your rehearsal schedule is rather aggressive, to say the least.”
 
-“This room is notoriously difficult to acoustically tune to.  I ne ed every bit of time I can get with such a tight deadline.”
+“This room is notoriously difficult to acoustically tune to.  I need every bit of time I can get with such a tight deadline.”
 
 “They sound great to me.”
 
@@ -74,4 +74,96 @@ Reggie suddenly appeared behind me. “Gee, Mr. Chase, that didn’t seem to go 
 
 “That’s right. Sometimes musicians slip out and down there for a smoke.”
 
-“Alright, if Bellamy won’t talk, then maybe one of the members of his band knows something and will be a bit more forthcoming.  Lead the way.”
+“Alright, if Bellamy won’t talk, then maybe one of the members of his band knows something and will be a bit more forthcoming.”
+
+We walked back to the elevator, which now had considerably more room than it had before. Only a single case was left sitting upright in the corner. “So, while I was talking to the Maestro, you delivered all of that luggage to all of those rooms?”
+
+“I am still on the clock, Mr. Chase, and people rely on me.”
+
+“Except this one,” I tapped the lone case in the corner. “You let this guy down.”
+
+“Oh, that’s Mr. Burkman’s. I’m taking it to him in the first-floor lounge.  He needs it for his act later.”
+
+I instantly pictured a case full of trick playing cards, fold-up wands, and rabbits carefully concealed in secret compartments in hats. “Funny how the same slight of hand skills that make a good magician also make a good thief.”
+
+“Oh, not Mr. Burkman.  He’s a sweet old man. He’s worked here for years.”
+
+The door opened, and Reggie led the way down the service corridor, past the kitchen and out onto the loading dock.  The night air had a damp chill to it.  The fog had rolled in, and the pavement, still wet from an earlier rain, reflected the full moon back at us in a thousand little ripples.
+
+I smelled it instantly, the smell of a cigarette.  A cloud of smoke appeared from the street below around the corner of the building and quickly lost itself in the fog.  I signaled for Reggie to stay put, pulled a smoke out of my pack, and jumped down three feet from the dock to street level below.
+
+“Hey, buddy, can I trouble you for a match?” I said as I rounded the corner and caught the second biggest shock of the evening.
+
+As shocks go, it was distance second, I will admit. I had met zombies before. Heck, half my clients, my friends walk around in a stupor and smell like something a mortician forgot to properly dispose of.  The important thing to remember is to never assume a zombie is dead just because it looks or acts like its dead.  I’ve known insurance salesmen and accountants who are often mistaken for corpses in broad daylight, and most corpses are more animated than my ex-wives.  This is neither here nor there until someone starts eating someone else.
+
+This wasn’t a salesman or an accountant, however.  It was a full-on minion of the undead. He was pale, his eyes were vacant, and his lower jaw was hanging at an angle that suggested he'd lost an argument with a Chrysler New Yorker.
+
+“I am terribly sorry to bother you,” I said as I began backtracking to the loading dock. Surprisingly, he just looked at me, annoyed, and kept smoking. Do zombie’s really enjoy cigarettes?  
+
+I leaped back up onto the dock.  “Kid, we’ve got to move.  Things just got serious.”
+
+“What is it Mr. Chase?”
+
+At that moment, the zombie shambled around the corner and headed for the narrow starway up to the dock.  He wasn’t looking at us, but I was certain he had brains on the brain.
+
+“Where’s your gun, Mr. Chase? Why don’t you shoot him?!”
+
+“You can’t waste bullets on these guys.  Shooting a zombie is about as effective as a bill collector sending me a collection notice.  I might sign for it, but it’s not going to change the circumstances in the least. Odds are, whatever organ you’re shooting at has already rotted away to nothing, and if it hasn’t you’re just going to annoy him more than cause him pain.”
+
+We retreated to the service corridor. The zombie kept waking toward us, if slowly.
+
+“We’ve got to alert Mr. Weatherby!  He’ll know what to do.”
+
+That’s where the sneaking supicion that I’d missed something crept into my brain. “Wait a minute,” I said as I stopped and turned around. The zombie entered the hotel from the loading dock and continued toward us. “Is that…”
+
+Reggie nodded and finished the sentence. “He’s carrying a trombone!”
+
+“The band are zombies?!  That’s what Bellamy is hiding? We’ve got to put a stop to this.” I ran for the elevator with Reggie close behind and grabbed Burkman’s case, flipping open the locks, hoping to find one of the swords you put through the box your assistant is hiding in, maybe even one of those giant blades you use to cut her in thirds.  Instead, I got the biggest shock of my life as a tiny body, dressed in a wrinkled brown suit flopped out and onto the floor.  It landed face up, grinning at me a painted-on smile and the lifeless doll eyes of a man who just found out his mother-in-law is moving in.
+
+I feel no shame in telling you I screamed like a girl.  
+
+“What the hell is that?!”
+
+“That’s Doctor Whispers.”
+
+“Doctor Whispers?!”
+
+“Mr. Burkman is a ventriloquist.”
+
+I have rules about ventriloquist dummies.  I can handle a vaudeville performer who makes his living telling lies without moving his lips. That’s most of the lowlifes I either vote for or get paid to catch.  I understand them. My problem is with their little wooden friends, like Dr. Whispers here. They’re the real stars of the show.  Burkman does all the work; Whispers gets the laughs and the name recognition.
+
+“You could have warned me!”
+
+“What? It’s just a Ventriloquist dummy.”
+
+“For now! You’ve seen how these things operate: they can say anything they want, things that would normally get you cut up and fed to the fish in the bay, and they get away with it, smug little bastards, because the guy with his hand up the back says, ‘Now, Doctor Whispers, you really shouldn’t say and do things like that…’ as if the dummy thought of it himself.  I know footsoldiers in the mob who would kill for that kind of power!”
+
+“Okay, but Mr. Burkman isn’t even here!”
+
+“Exactly, so who is going to stop that thing now?!”  I began backing out of the elevator straight into the zombie, ducked and ran for the main lobby.  Reggie followed.
+
+The zombie didn’t.
+
+It simply got back in the car, with the potentially cursed ventriloquist dummy, and pulled the door closed. We both stopped, completely dumbfounded. Seconds later, the elevator began to ascend back to the ballroom.
+
+Reggie finally picked his jaw up off the floor.  “Ummmmm … should we do something?”
+
+"About what?" I asked.
+
+"That man is dead!"
+
+"So are most of the fellows I went to school with. Doesn't mean I go around interfering with their business."
+
+"But he's walking!"
+
+"Well, you wouldn't expect him to take a taxi. He hasn't got any money."
+
+Reggie looked at me as though I'd suggested we invite the fellow to dinner.
+
+"Mr. Chase, aren't zombies dangerous?"
+
+"Apparently some are, and some aren't. Same as lawyers."
+
+"But how can you tell?”
+
+“One mystery at a time, kid.”
