@@ -1,1 +1,99 @@
 # The Debutante Conspiracy
+
+While Reggie and I, in a turn of fortune that I probably should have seen coming, were being chased by zombies and targeted by a particularly malicious ventriloquist’s dummy that I was sure was targeting us, little Sally Montana was doing her part, in a cute little kid-detective way, to solve the mystery of her stolen jewels. Once the obligatory dinner was completed, celebrating the tireless few who showed up early to hang tissue paper and streamers, the parents retired to the lounge and left the debutantes to their own devices. Sally kept a close eye on Gladys Balsam and her Upper Weaver conspirators.
+
+The group had gathered in one of the sitting rooms adjacent to the banquet hall on the second floor to hear Hilda play a rather poor rendition of  “Goodnight My Beautiful.” Sally parked herself just around the corner of the room’s arched entryway, hiding behind the curtain, and straining to hear the muffled conversations beneath the awkward playing and Janette’s wobbly singing.
+
+“We’re certain everything is ready for tomorrow?” Gladys said, in her usual authoritative tone that bordered on condescension.
+
+“Our man will be dropping the case off in the lobby at 7 PM,” Clara said. “I reserved a suite on the 19th floor for us.  He will leave instructions for the bellhop to bring the case upstairs to us.  Once we have it, the hard part will be keeping everything quiet and under wraps until the ball starts. If anybody learns about the suite, or what we’re hiding in there, then the entire plan is shot.”
+
+“One of us needs to be in the room when the case arrives,” she heard Gladys say. “If the bellhop tries to unpack it and sees what’s inside, we’re done for.  If it should accidentally come open in the lobby or the hallway, it would be even worse.”
+
+“We just need to keep everything together for an hour or so before we make the big reveal and present our demands,” this from Pricilla.
+
+So that was it, Sally realized. They sole the necklace and intended to use it to blackmail her family into … what? … that was the missing piece. For that matter, if they are making demands publicly, it is really blackmail? It couldn’t be money they were after,
+
+“That’s another thing to consider.  What if Bellamy refuses to go along with us?” asked Janette, who always seemed to be nervous about something or other.
+
+Bellamy? Sally thought. It made sense.  The only time Bellamy had left the ballroom was to go down to Weatherby’s office. If he stole the necklace, however, why was it being delivered in a case tomorrow night by a hired thug? What role did he play? Was he behind all of this, or just someone they’d duped into going along.
+
+“By that point, he won’t have a choice. We’re holding all the aces.  No, this is going to work. Besides, it’s our party, regardless of what our parents seem to think. We’re doing this on our own, without anybody’s help.”
+
+That was it, wasn’t it? Somehow these six screwups were the masterminds behind the theft? It seemed highly unlikely to her.
+
+“Well, it was my older brother who gave us the idea,” Hilda Laskey said. That made a degree of sense. Her brother was some kind of radio journalist. It’s likely he heard the story of the necklace, its importance, and its unveiling.  It was conceivable that he pointed this out to his sister, possibly looking for a story.
+
+“True. We came up with most of the actual plan, though,” Gladys corrected, obviously wanting to maintain her fragile hold on the leadership of the gang.
+
+Janette chimed in on cue. “Well, technically, we did hire that scary guy to actually make the grab.” She was the only one who seemed nervous about him.
+
+“Okay, I suppose we did.”
+
+“And it was my trust fund that actually paid for his services,” Pricilla chimed in.
+
+“And we’re very grateful for your sacrifice.”
+
+Clara was quick to speak. “And my father’s credit card paid for the suite.”
+
+Gladys voice lost patience for the first time. “Sure, that goes without saying that we don’t have the financial means to hire--”
+
+“Of course, our parents set up the entire ball, otherwise what was the point of doing any of this?” Hilary pointed out.
+
+“Yes, obviously our parents setting up the ball in the first place, otherwise we’d look like a bunch of complete idiots right now.”
+
+“Speaking of which, we’re going to need food in the suite, in case somebody gets hungry while we’re waiting,” Janette said. Honestly, judging by her appearance, food was always foremost on her mind.
+
+“Oh, my mother is in charge of the catering,” Pricilla offered. “I’ll have her order an extra fruit tray and redirect it up here.”
+
+“We still have the problem of getting everything to the ballroom for the big reveal,” Gladys said, trying to steer the conversation back to logistics.
+
+“I think that night shift bellbody, Eugene, fancies me.  I bet I can talk him into it,” Hilda said.
+
+The curtain was suddenly thrown back, and Sally let out a little shriek of fright as she found herself face to face with an angry-looking man, one of the group that Jack pointed out as “a Tong.”  He wore a black suit and tie and stared at her accusingly with dark eyes.
+
+“I’m sorry, you startled me,” she whispered, not wanting the Upper Weaver girls in the next room to hear her voice while they were going over their plans for the following evening.
+
+The man tapped her feet with a long metal pipe of some sort. Did he mean to break her legs?  That would mean he must somehow be involved with the girls and their plans. It dawned on her that he was like the Chinaman the girls had hired to transport her stolen necklace. She thought briefly about calling him out then and there, but couldn’t find the courage.
+
+The man tapped her left shoe, then her right shoe. She looked at him, confused, until he made a gesture with his hands.  He wanted her to lift her feet.  Slowly she obliged by lifting her left foot. He immediately reached down and grabbed it, turning her foot to expose the sole of her saddle shoes. He studied it for a moment, then let it go, made a grunting noise, and pointed to her right foot.  She repeated the process.
+
+It dawned on her that he was likely determining the size of her feet in order to pick the bucket they would soon be cemented into.
+
+Eventually, he made a similar grunting noise and released her right foot.  Then he mumbled something in a disappointing tone and began shaking the pipe in his hand.
+
+“Look, honestly, I didn’t hear anything.  I just heard the piano and decided to come listen. I don’t know anything about whatever they were talking about or any kind of plans they might have or anything that involves you, so I’ll just be leaving now, I think I hear my father calling, he’s a very powerful and influential person you know…” she quickly ran out of breath and darted for the elevators.
+
+The Chinese man didn’t follow.
+
+She caught up with Reggie and myself in the lobby five minutes later babbling something about a grand conspiracy involving the Maestro, a hired Tong assassin, and the Upper Weaver debutante sect.  Whatever they were planning, it appeared the necklace was going to be in a suite on the 19th floor tomorrow night, and everything was going to come to a head at the start of the ball.
+
+“Look, kid, maybe you shouldn't be involved in this. I'm hired to make sure your perfect evening goes off without incident, and while I appreciate what you've done up to this point, this lollipop is about to get dog hair all over it.”  I briefly explained  about the Bellamy's  zombies and the 90% probability that the mastermind behind all of this was a ventriloquist's dummy that fool Reggie had left unattended in an elevator. She failed to see the relevance of any of it. That's because Nancy Drew hadn't seen the kinds of things I'd seen.  She was too busy looking for footprints in the dust of old abandoned houses and following strange lights in windows. Real detectives don't do foolish things like that, especially without charging someone for it. We’ve been in that stuff, up to our armpits in ghosts and mole men. We've learned our lessons.
+
+“Why can't you just say it, Mr. Chase?”
+
+“Say what, kid?”
+
+“That I've gotten further than you on this case, and I'm close to cracking the entire thing without you.”
+
+“Kid you haven't scratched the surface of what's going on here, believe me. When Captain Hush back there finally wakes up and summons his armies--"
+
+“A simple, ‘Good job, kid' would suffice.”
+
+“You can have your ‘good job' when you figure out what the brat squad is planning.  Right now you only know the WHEN.  We still need to know HOW Bellamy is involved, WHY the Chinese Tong are involved, WHO actually stole your necklance, and WHERE it is now.”
+
+“Can you at least admit I'm one interrogative pronoun ahead of you?”
+
+“Fine. Good job, kid.  I'll take it from here.”
+
+“The hell you will, old man,” she smiled politely and skipped off toward the elevators.
+
+Once she was completely out of sight and on her way up, I looked over and saw Reggie, looking not unlike a puppy and slobbering all over his bellhop uniform. “Jeez, kid, do you need to go walkies or what?”
+
+“Isn't  she  wonderful, Mr. Chase.  Smart, tough, wise--"
+
+“—and looks great in knee-socks and saddle shoes?”
+
+“Yeah…”
+
+I smacked the back of his head so hard his hat flew off. “Knock it off! I need your head in the game! My eyes and ears, remember?  Now come on, we've got work to do.”  
