@@ -1,24 +1,24 @@
 # Reggie O'Grady
 
-The Hotel Beauchamp was normally quite calm, almost docile.  That weekend’s chaos started on Thursday morning, hours before I got there and almost a full day before it was nearly destroyed by debutantes and ... well ... I don’t want to get ahead of myself.
+The Hotel Beauchamp was normally quite calm, almost docile.  That weekend’s chaos started on Thursday morning, hours before I got there and almost a full day before it was nearly destroyed by debutantes and … well … I don’t want to get ahead of myself.
 
-“O’Grady, Mr. Hu's trunk just arrived.  Take it up to room 504 and unpack it for him. He'll be late checking in,” the hotel manager yelled, a bit more aggressively than was called for.
+“O’Grady, Mr. Hu's trunk just arrived.  Take it up to room 504 and unpack it for him. He'll be late checking in,” the hotel manager yelled, a bit more aggressively than was called for.
 
-“Yes, Mr. Weatherby,” Came the eager voice of a nineteen-year-old, freckle-faced bellhop, who was already carrying a large suitcase in each hand, a hatbox under his left arm, and a cloth-covered birdcage in his teeth.  He expertly hooked a wheeled cart with his left foot and set everything on it, then grabbed the trunk and manhandled it onto the end.  “504.”  He grabbed the nametag on the trunk’s handle and studied it. “Mr. Hu,” he said quietly to himself, then pointed to the larger suitcase and hatbox ... “1219” ... and the smaller suitcase and birdcage ... “824.”
+“Yes, Mr. Weatherby,” Came the eager voice of a nineteen-year-old, freckle-faced bellhop, who was already carrying a large suitcase in each hand, a hatbox under his left arm, and a cloth-covered birdcage in his teeth.  He expertly hooked a wheeled cart with his left foot and set everything on it, then grabbed the trunk and manhandled it onto the end.  “504.”  He grabbed the nametag on the trunk’s handle and studied it. “Mr. Hu,” he said quietly to himself, then pointed to the larger suitcase and hatbox … “1219” … and the smaller suitcase and birdcage … “824.”
 
 “And hurry back. The convention attendees are starting to arrive.”
 
 “Convention?!”
 
-“Yeah, some sort of East Asian industrialists are taking the third-floor banquet area this weekend. Oh, and before you get back, stop on 2 and check the lost and found.  One of the trumpet players rehearsing in the ballroom lost his mute last night. See if anyone has found it and turned it in.”
+“Yeah, some sort of East Asian industrialists are taking the third-floor banquet area for the weekend. Oh, and before you get back, stop on 2 and check the lost and found.  One of the trumpet players rehearsing in the ballroom lost his mute last night. See if anyone has found it and turned it in.”
 
 “Will do, boss.”
 
-A second bellhop, taller, lankier, and a bit older than Reggie, came around the corner.  “Hiya, Reg. Need any help?”
+A second bellhop, taller, lankier, and a bit older than Reggie, came around the corner.  “Hiya, Reg. Need any help?”
 
-Eugene McDougal was the type of person who was rarely nice for nice's sake.  Reg knew his generous offer was part of a plan to sabotage him before the convention guests started dispersing tips.
+Eugene McDougal was the type of person who was rarely nice for nice's sake.  Reg knew his generous offer was part of a plan to sabotage him before the convention guests started dispersing tips.
 
-“That's okay, Eugene, just three sets of luggage to deliver.  Do you want to go to the lost and found and see if there's a mute there?”
+“That's okay, Eugene, just three sets of luggage to deliver.  Do you want to go to the lost and found and see if there's a mute there?”
 
 “A mute?”
 
@@ -26,13 +26,13 @@ Eugene McDougal was the type of person who was rarely nice for nice's sake.  Re
 
 “Why don't you do that, and I'll run the luggage up.”
 
-Reggie weighed the benefits of keeping Eugene occupied for a few minutes against what would likely be nearly a dollar in tips.
+Reggie weighed the benefits of keeping Eugene occupied and out of his hair for a few minutes against what would likely be nearly a dollar in tips.
 
 “Yeah, fine, you can run these three drops.”
 
-“Three drops.  Sure.  Where am I going?”
+“Three drops.  Sure.  Where am I going?”
 
-Well, the trunk is for Mr. Hu and needs to go to 504 and be unpacked. The small bag and birdcage are for Mr. Watt in 824.  The large suitcase and hatbox are for Mrs. Mei in 1219.”
+Well, the trunk is for Mr. Hu and needs to go to 504 and be unpacked. The small bag and birdcage are for Mr. Watt in 824.  The large suitcase and hatbox are for Mrs. Mei in 1219.”
 
 “Okay, so whose bags go to the fifth floor?” asked Eugene.
 
@@ -48,7 +48,7 @@ Eugene blinked. “I didn't ask about eight.”
 
 “Whose bird?”
 
-“No, Hu’s is the trunk, and it goes to five.  He hasn’t checked in yet.”
+“No, Hu’s is the trunk, and it goes to five.  He hasn’t checked in yet.”
 
 “Then why are we taking his trunk upstairs?”
 
@@ -84,7 +84,7 @@ Eugene stopped, cocked his head to one side, and inspected the items on the cart
 
 “I’m not.”
 
-Eugene took another deep breath.  “Who is in 504?”
+Eugene took another deep breath.  “Who is in 504?”
 
 “Not yet,” said Reggie. “But his luggage will be.”
 
@@ -100,23 +100,23 @@ At this point, a small gentleman in a gray suit approached the counter and prese
 
 “Yu,” he said.
 
-"Oh, Me?" Eugene snapped to attention. “Yes, sir? How can I be of service?”
+"Who, Me?" Eugene snapped to attention. “Yes, sir? How can I be of service?”
 
-The gentleman nodded.  
+The gentleman nodded.  
 
 Eugene stared at him expectantly.
 
 “Yu," the man said at last.
 
-“Yes, sir.  I am at your disposal, sir, whatever you need.”
+“Yes, sir.  I am at your disposal, sir, whatever you need.”
 
 The gentleman pointed to his ticket.
 
-Reggie reached around and grabbed it from him.  “Good morning, sir. You are in Room 1227.  I took your luggage up earlier.  I was just headed that way if you would care to wait one second.”
+Reggie reached around and grabbed it from him.  “Good morning, sir. You are in Room 1227.  I took your luggage up earlier.  I was just headed that way if you would care to wait one second.” He pointed to the main bank of elevators.
 
-The gentleman smiled and walked over toward the elevators.
+The gentleman smiled and walked over in the direction Reggie indicated.
 
-Eugene stared after them.
+Eugene stared after him.
 
 “You knew who that was?”
 
@@ -154,7 +154,7 @@ Eugene took a long breath. It was a fine breath, full of hope and the promise of
 
 Eugene stared at Reggie like a particularly dim dog trying to read a bus-route map. The telephone rang. Reggie picked it up before it was finished.
 
-“Bell desk. Yes, Maestro Bellamy. Certainly, Maestro Bellamy. I was just headed to lost and found.  If I see it, I'll have it sent up immediately.”
+“Bell desk. Yes, Maestro Bellamy. Certainly, Maestro Bellamy. I was just headed to lost and found.  If I see it, I'll have it sent up immediately.”
 
 He hung up and made a note.
 
@@ -170,7 +170,7 @@ He hung up and made a note.
 
 “Maestro Bellamy. He needs a mute for his trumpet player.”
 
-“Then send the trumpet player!”
+“Then why doesn’t he send the trumpet player?”
 
 “He's already in the ballroom.”
 
@@ -190,7 +190,7 @@ The gentleman shook his head.
 
 “Checking in?”
 
-Another shake.
+A nod.
 
 “How can I help you?”
 
@@ -210,7 +210,7 @@ The gentleman nodded vigorously.
 
 Reggie considered this. “I haven't asked.”
 
-Eugene snatched the telephone receiver from the counter. “Ballroom, please! Tell Maestro Bellamy I have found his mute!  I'll bring him up momentarily.”
+Eugene snatched the telephone receiver from the counter. “Ballroom, please! Tell Maestro Bellamy I have found his mute!  I'll bring him up momentarily.”
 
 The gentleman's eyes widened. He shook his head violently, seized Eugene's sleeve, and honked three times.
 
@@ -224,7 +224,7 @@ The gentleman's eyes widened. He shook his head violently, seized Eugene's sleev
 
 “Then why did he come here?”
 
-Reggie handed the man a key.  “Room 1414, sir. I'll bring the bags shortly.  The elevator is right over there.”
+Reggie handed the man a key.  “Room 1414, sir. I'll bring the bags shortly.  The elevator is right over there.”
 
 The gentleman bowed, tucked his horn beneath his arm, and started away.
 
@@ -258,7 +258,7 @@ Eugene turned.
 
 The man rolled his eyes. “My name,” he said thinly and ominously.
 
-“I don't know your name.”
+“I don't know your name.”
 
 The gentleman's expression did not change. Reggie consulted the register.
 
@@ -268,11 +268,7 @@ The gentleman's expression did not change. Reggie consulted the register.
 
 “See what?” demanded Eugene.
 
-“Luk See.”
-
-“YES, I CAN SEE YOU!”
-
-Mr. Luk See studied Eugene for a moment like something he needed to scrape off his shoe, then looked at Reggie. He handed over a claim ticket.
+“At least one of you is competent.” Mr. Luk See studied Eugene for a moment like something he needed to scrape off his shoe, then looked at Reggie. He handed over a claim ticket.
 
 “I've already put your cases in 912, sir,” said Reggie. “Will there be anything else?”
 
@@ -298,11 +294,11 @@ Before Eugene could object, a fourth visitor arrived: a short, round-faced gentl
 
 Eugene closed his eyes. “No,” he pleaded.
 
-The little man smiled and nodded. “Yes. Wei.”
+The little man smiled and nodded. “Yes!”
 
 “No, no, no.”
 
-“Noh, yes.”
+“Noh, yes!”
 
 “I SAID NO!”
 
@@ -346,7 +342,7 @@ Eugene pointed at Reggie. “Wait!”
 
 Mr. Wei shook his head. “No, Wei.”
 
-“NO, I MEAN WAIT!”
+“I know, but … WAIT!”
 
 “Wei!” the man insisted.
 
@@ -382,11 +378,11 @@ Eugene could only stare. “What is happening?”
 
 “Very successfully, by the look of it.”
 
-Mr. Wei pointed toward the elevators. The silent gentleman gestured with his horn. One long honk, two short ones. Mr. Wei nodded, and the two headed toward the lifts.
+Mr. Wei pointed toward the elevators. The silent gentleman gestured with his horn. One long honk, two short ones. Mr. Wei nodded, and the two headed toward the lifts.
 
 “WAIT!” cried Eugene.
 
-Both gentlemen stopped.  Mr. Wei looked back. “No wait, Wei!”
+Both gentlemen stopped.  Mr. Wei looked back. “No wait, Wei!”
 
 The silent gentleman honked.
 
@@ -396,9 +392,9 @@ Mr. Wei pointed at himself. “Wei?”
 
 “YES, YOU!”
 
-Mr. Wei shook his head and pointed at the silent gentleman.  Eugene's mouth opened. Nothing came out. The silent gentleman gave a cheerful little toot.  Reggie stepped around the counter.
+Mr. Wei shook his head and pointed at the silent gentleman.  Eugene's mouth opened. Nothing came out. The silent gentleman gave a cheerful little toot.  Reggie stepped around the counter.
 
-“Mr. Wei, you are both on 14.  Mr. Yu is on 12.  I'll take you all up and see that your luggage arrives.”
+“Mr. Wei, you are both on 14.  Mr. Yu is on 12.  I'll take you all up and see that your luggage arrives.”
 
 Mr. Wei beamed. The silent gentleman saluted with his walking stick.
 
@@ -406,7 +402,7 @@ Mr. Wei beamed. The silent gentleman saluted with his walking stick.
 
 Eugene straightened his jacket.
 
-“Fine. I can handle that.”
+“Fine. Get the mute to the ballroom, I can handle that.”
 
 “Thank you.”
 
@@ -420,15 +416,15 @@ Reggie pushed the cart toward the elevators and beckoned for the group to follow
 
 “You know you can count on me, sir.”
 
-“Yes, Eugene.  If anything goes wrong here in the lobby, I will know exactly who to blame.”
+“Yes, Eugene.  If anything goes wrong here in the lobby, I will know exactly who to blame.”
 
-Eugene beamed with pride.  "Thank you, Mr. Weatherby!"
+Eugene beamed with pride.  "Thank you, Mr. Weatherby!"
 
-A few moments later, the elevator doors opened again. Reggie stepped out alone, carrying a small black object.
+Ten minutes later, Reggie came down the service corridor, carrying a small black object.
 
 “What's that?” Eugene demanded.
 
-“A mute.  I happened to think all of the musicians have been taking smoke breaks on the loading dock, so I decided to check there in case you came up empty at lost and found.”
+“A mute. I happened to think all of the musicians have been taking smoke breaks out by the loading dock, so I decided to check there in case you came up empty at lost and found.”
 
 “You told me to go to lost and found!”
 
