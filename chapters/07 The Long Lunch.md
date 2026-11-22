@@ -44,27 +44,27 @@ Reggie began examining his fingernails.  “Oh, her? I don’t think she’s for
 
 “Fine.  Then I’ll speak to you tomorrow when the water department gets here.”
 
-“That will be fine sir.  Though I imagine Mrs. Henebery will be quite disappointed.”
+“That will be fine sir.  Though I imagine Ms. Henebery will be quite disappointed.”
 
-“Mrs. Henebery?”
+“Ms. Henebery?”
 
-“The blonde with the red skirt. She was asking me earlier about distinguished gentlemen attending the ball.”
+“The Widow Henebery, yes, sir. The blonde with the red skirt. She was asking me earlier about distinguished gentlemen attending the ball.”
 
 Goldstein’s eyes lit up. “Was she, now?”
 
 “Yes, sir, she’s very particular about civic responsibility, though.”
 
-“Civic responsibility, you say?”  His voice waivered just a little.
+“Civic responsibility, you say?”  His voice wavered just a little.
 
 “Oh, yes. Says there's nothing more attractive than a man who gets things done.”
 
-“She did, did she?” He tone had collapsed.
+“She did, did she?” His tone had collapsed.
 
 “She has reservations tonight.  It will be a shame if her water tastes like metal.”
 
-“Reservations at the restaurant ... tonight?”
+“Reservations at the restaurant … tonight?”
 
-“7PM reservations, yes sir.”
+“7 PM reservations, yes sir.”
 
 “Fine.  I’ll have someone here before the dinner rush tonight.”
 
@@ -76,23 +76,95 @@ Goldstein perked up a little. “Well, I will definitely have to introduce mysel
 
 “If you would like to negotiate for table misassignments, I will be here all day.  Provided we don’t have some other water-related emergency that takes me away from my duties.”
 
-Golstein eyed him for a second. “What’s you’re name, son?”
+Goldstein eyed him for a second. “What’s your name, son?”
 
 “Reggie O’Grady.”
 
-“You’re a haaaard man, O’Grady.”[^fn1]
+“You’re a haaaard man, O’Grady.”[ Yes, I am aware its not at all funny.  It IS word count, however, approximately gag-sized and its action is plot shaped for what will eventually go there.]
 
-Meanwhile, in the lobby, I'd had my fill of East Asian gang members and hiding from from Pierce.  I was ready to confront Luk See the next time he walked by when Sally Montana tapped me on my left shoulder.  I let out a little shout of surprise.  The girl was surprisingly stealthy and had somehow gotten inside my perimeter.
+Meanwhile, in the lobby, I was camped out on the nicest couch they had with a newspaper I was only pretending to read. Frankly, I'd had my fill of East Asian gang members and watching Weatherby never come out of his office when I got a light tap on the shoulder.  I turned around and found myself face to face with Alister Pierce.
+
+“Jack Chase,” he said.
+
+“Detective Pierce,” I said, going back to my paper.
+
+“Not anymore, thanks to … well, okay, maybe I still am.  Fine, you win that round, Jack.” He bristled a bit as he brought himself to his full height. “What are you doing in my hotel, Chase?”
+
+“Enjoying the free cookies and complimentary newspaper. Don’t worry, I didn’t touch the little soaps.”
+
+“Don’t get cute with me, Chase.  My boss doesn’t want you here and told me to remove you if I see you sneakin’ around. Now, we can do that the easy way or the hard way. Please, pick the hard way.”
+
+“You know, Pierce, sometimes I get the feeling you don’t like me much.”
+
+“You got me kicked off the force, in case you didn’t know that.”
+
+“I helped you get off a public official salary and into private practice.  Tell me you’re not doing better being Weatherby’s muscle than you did in blue.”
+
+“You told them I was brutal and violated a citizen’s rights.”
+
+“Okay, now that’s just not true. I told them you were brutal, violated a citizen’s rights, and that you were an incompetent moron, but I guess they dropped the charge on that last one?”
+
+“I never did no such thing, Chase.”
+
+“Pierce, I was there.  Summer of ’36, Katz Brother’s Deli and Grocery gets robbed.  I’m working the case, finding out who robbed them. You came in and started interrogating suspects. You beat one of them to a pulp.”
+
+“That’s how you learn things in the detective business.  You ask the right people the right questions.”
+
+“He was one of the Katz brothers, Pierce. One night he gets robbed, the next morning the investigating officer puts him in the hospital … why? … because he knew too much?”
+
+“Yeah, fine, don’t pretend you never played a hunch, Chase.”
+
+I rubbed at my forehead. “Why don’t you go beat a confession out of a double-parked car?”
+
+“Maybe I will, but in the meantime, the boss wants you out?”
+
+“For what?”
+
+To his credit, Pierce actually stopped to think about this for a moment. “For makin’ us look back doing my job for me.”
+
+“So that implies one of the guests hired me to solve a crime, doesn’t it?”
+
+“You know it does, Chase.”
+
+“Do I look like I’m trying to solve a crime, Pierce?”
+
+“Well, no but—"
+
+“For that matter, are you aware of any crimes that have been committed around here lately?”
+
+“Of course not, but--”
+
+“Of course not, because you’re doing a stellar job. Nobody would dare commit a crime while you’re around.  In fact, having me sitting in your lobby, not solving a crime -- because that would be your job -- is really making you and your hotel look really good, don’t you think?”
+
+“Now wait a minute, Chase—”
+
+“No, honestly, you’ve been very good about warning me off solving any crimes around here. I am convinced that I should just sit here and enjoy the complimentary newspaper and the cookies.”  I took a bite of the cookie to drive my point home.  I was pretty sure it was at least three days old.  “On second thought, tell the concierge the cookies are a bit dry.  Do you have a pot of coffee around here somewhere?”
+
+“Listen to me—”
+
+“I did listen, Pierce, and you won.  You may tell your boss that you have shown me the folly of attempting to solve a crime on your turf, and you have done it with admirable restraint.”
+
+His eyes suddenly lit up. “Wait. Would you say I was discreet?”
+
+I thought for a moment. “Well, you were certainly low-key. You didn’t make a ruckus or destroy anything. No one was injured.  Yes, I’d say you were quite discreet.”
+
+He suddenly seemed quite pleased with the situation.  “Okay, Chase, read your paper.  Don’t let me catch you trying to solve any crimes around here, though.”
+
+I smiled and went back to pretending to read my paper.  “Hand to heart. I wouldn’t dream of it. You’re the detective, after all.”
+
+He started walking off, got about four paces, then turned around. “Okay, then, but I’ve still got my eye on you.”
+
+“I feel safer already,” I called after him, grateful I still had all my teeth when Sally Montana tapped me on my left shoulder.  I let out a little shout of surprise.  The girl was surprisingly stealthy and had somehow gotten inside my perimeter.
 
 “You gotta quit sneaking up on me like that, kid, I'm on high alert here.  I might have drawn and shot you.”
 
-Sally, ever the cool one, simply shurgged.  “Did you get my note?”
+Sally, ever the cool one, simply shrugged.  “Did you get my note?”
 
 “Yeah, kid, I don't know what you heard, but it makes no sense--"
 
-“I HEARD them say they hired a Chinaman to grab something for them, and bring it to them at a prearranged time and location.”
+“I’m telling you, I HEARD them say they hired a Chinese man to do some kind of job for them.  They’re going to meet with him later.  That means he’s done it already, or he’s about to do it.”
 
-“Well I guess that narrows it down. I count only 150 people in the hotel matching that description right now.  What makes you think he's even here?”
+“A Chinese man, you say? Well, I guess that narrows it down. I count only 150 people in the hotel matching that description right now.  What makes you think they hired him to steal your necklace and not carry their sash, or whatever it is you debutantes hire people to do?”
 
 “They've met him, some of them have talked to him. Some of them are afraid of him and think he's going to kill someone.”
 
@@ -104,35 +176,35 @@ Sally, ever the cool one, simply shurgged.  “Did you get my note?”
 
 “Still, I would feel bad if--"
 
-“Look, kid, even if they were out to steal your necklace, there's a very fine line between hiring someone to steal something and them actually being able to pull the job off.  I'm all over this thing. Someone has been watching it ever since last night. Trust me, nobody is getting into that office unless Weatherby or Carson are in there with them.  I promise I'll be extra alert if one of the Chinamen goes in.”
+“Look, kid, even if they were out to steal your necklace, there's a very fine line between hiring someone to steal something and them actually being able to pull the job off.  I'm all over this thing. There have been eyes on that office constantly since last night. Trust me, nobody has gone into that office unless it was to see Weatherby or Carson.  I promise I'll be extra alert if one of the Chinamen pays either a visit though.”
 
-“And what if they've already gotten it, and missed it.  They could be making the exchange right now while we're sitting here talking.”
+“And what if they've already gotten it and you missed it?”
 
 “Kid, I guarantee you--"
 
 “Please, Mr. Chase! It’s worth a lot to my family and me.”
 
-“Okay, look, if I show you how secure it is and how impossible it's going to be for someone to make off with your necklace, will you let it drop and let me do my job.”
+“Okay, look, if I show you how secure your necklace is and how impossible it's going to be for someone to make off with it, will you let it drop and let me do my job.”
 
 Sally thought for a moment, then nodded.
 
-“Fine, it's your necklace.  Got up to that front desk clerk there and demand they show you the safe and the security precautions around it.”
+“Fine, then since it's your necklace, all you have to do is go up to that front desk clerk there and ask them to show you the safe and the security precautions around it.”
 
 Sally raised one eyebrow as if it had never dawned on her that she could just “do that.”  Jack motioned for Reggie to join them as he followed her up to the desk and into Weatherby's office.
 
 “So.” Weatherby sneered. “You must be the private dick that's been disturbing my guests and borrowing my staff with an unauthorized investigation.” He gestured toward Reggie.
 
-“Name's Jack Chase, and if you don't open that safe for this girl right now, I have not yet begun to disturb and borrow things around here.”
+“Name's Jack Chase. I’m not investigating anything, and if you don't open that safe for this girl right now, I’ll stop being discreet about it.”
 
-Weatherby stared at him for a moment. Then slowly pushed his chair back from his desk and turned around to face the safe. He spun the wheel like an expert, almost instinctively stopping on the correct number each time.  Numbers, jack noted, that he had committed to memory.  When the sequence was done, he pulled the large, silver handle and the safe effortlessly opened revealing a large wooden box.
+Weatherby stared at me for a moment. Then slowly pushed his chair back from his desk to reveal the safe. He spun the wheel like an expert, almost instinctively stopping on the correct number each time.  Numbers, I noted, that he had committed to memory.  When the sequence was done, he pulled the large, silver handle and the safe effortlessly opened revealing a large wooden box.
 
 “That's it, Sally said.”
 
-Weatherby removed the box and handed it to Jack, who opened it slowly.
+Weatherby removed the box and set it on the desk.  She opened it slowly.
 
-“And there are your jewels,” he said confidently as he got his first look at the necklace that had been the cause of all of his problems for the past two days.
+“And there are your jewels,” I said confidently as I got his first look at the necklace that had been the cause of all of his problems for the past two days.
 
-“Jack...” she said quietly.
+“Jack…” she said quietly.
 
 “It's beautiful.  I could see why someone would want to steal it.”
 
@@ -142,7 +214,7 @@ Weatherby removed the box and handed it to Jack, who opened it slowly.
 
 “It's made of plastic.”
 
-Jack stammered for a moment. “A lot of plastic is really quite valuable.  As a polymer, it's almost completely--"
+I stammered for a moment. “A lot of plastic is really quite valuable.  As a polymer, it's almost completely--"
 
 “It has a Disney logo on it.”
 
@@ -158,11 +230,11 @@ Jack stammered for a moment. “A lot of plastic is really quite valuable.  As a
 
 “Oh, my god!”
 
-Jack, still confused by this latest development, began running scenarios in his head.
+Disheartened, I began running scenarios in my head.
 
 Reggie, standing in the doorway, covered his gaping jaw with his hand. “How did they get the jewels?”
 
-Jack slapped his forehead. “Because, like an idiot, I announced exactly how to in the lobby yesterday afternoon. I even suggested swapping in a duplicate to temporarily allay suspicions. They stole my plan!”
+Suddenly, it dawned on me.  “Because, like an idiot, I announced exactly how to in the lobby yesterday afternoon. I even suggested swapping in a duplicate to temporarily allay suspicions. They stole my plan!”
 
 “Well, at least you know it was a good plan.”
 
@@ -170,10 +242,8 @@ Jack slapped his forehead. “Because, like an idiot, I announced exactly how to
 
 “Well, maybe if you tell Miss Halston-Kensington, she’ll give you a partial bonus then.”
 
-“No, kid, the only way we’re going to get out of this is to get Miss Montanas jewels back.  For that I need your help.”
+“No, kid, the only way we’re going to get out of this is to get Miss Montana’s jewels back.  For that I need your help.”
 
 “What do you need, Mr. Chase?”
 
 “We can be reasonably certain whoever committed that crime was in the lobby yesterday near your stand when I alerted them to the jewels and gave them the plan. If they were in the lobby and didn’t commit the crime, then maybe they saw someone who took a particular interest in us and my story.  For that, we need to go through your register and find everybody who checked in or out during that time.”
-
-[^fn1]:  Yes, I am aware its not at all funny. It IS word count, however, approximately gag-sized and its action is plot shaped for what will eventually go there.
