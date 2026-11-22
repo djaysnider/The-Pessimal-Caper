@@ -12,41 +12,49 @@ Mickey was like family.  He was always there when I needed him; he always kept 
 
 When we hit the lobby, Reggie went immediately for the concierge desk to make himself a few nickels.  I took a seat behind Malone, facing the other direction to keep things on the down-low. “Mornin’ Meter.”
 
-“Mornin’ Chase.”
+“Mornin’ Chase,” he said to the air in front of him.  Anyone watching would assume he was crazed and talking to himself.
 
-“Quiet night?”
+I kept my head low, turned slightly, and spoke into my collar. “Quiet night? No one suspicious poking around the manager’s office?”
 
-“What the hell have you gotten yourself into with this one, Chase?”
+“The office was locked all night, and nobody suspicious went near the door. Since then, it’s just been various staff and debutante mothers going to talk to Weatherby.  Not that any of those dames is angels, mind you. What the hell have you gotten yourself into with this one, Chase?”
 
 “What do you mean?”
 
 “There are some real mean customers mixed up in all this.”
 
-“You spotted Luk See?”
+“Ah, so you spotted Luk See?”
 
-“No, is he here?  Gezz, it’s been forever. I’d love to catch up with him.  No, I’m talking about these society moms and their henchmen.”
+Meter immediately started looking around the lobby enthusiastically. “No, is he here?  Gezz, it’s been forever. I’d love to catch up with him.  No, I’m talking about these society moms and their henchmen.”
 
 “Henchmen?”
 
-“Yeah, this one over here, Miriam Henebery, threatened to have her chauffeur put the florist in cement overshoes for the carnations being two shades darker than the doilies.”
+“Yeah, this one over here, Miriam Henebery, threatened to have her chauffeur feed the florist to her dogs for the carnations being two shades darker than the doilies.”
 
 “Seems excessive.”
 
-“No, excessive was what Josephine Seigmann told her dressmaker to do to the caterer with her pinking shears because the crumble topping on her coffee cake was too dry. These are some bad people. That redhead is the worst of the lot.”
+“No, excessive was what Josephine Seigmann told her dressmaker to do to the caterer with her pinking shears because the crumble topping on her coffee cake was too dry. These are some bad people.”
 
-“Halston-Kensington? That’s the client, Meter.”
+I’ve always valued Meter’s skills at reading people, so I took it under advisement. “See anybody you know among the Yakuza crowd? That can’t be a coincidence.”
 
-“Then do yourself a favor.”
+“There’s Yakuza here?”
 
-“What’s that?”
+“Yeah, Luk See and a few dozen of his countrymen.”
 
-“Don’t screw up this case.”
+“Those guys ain’t Yakuza, Chase. They ain’t even Japanese. They’re Chinese.”
 
-“Hadn’t planned to.”  I slipped a ten behind my back and into his pocket.  “Same time tonight?”
+“Chinese? You sure?” I could have sworn they were Japanese.
+
+“Yeah, they’re all part of a group called the Tai Po Tong.  If it’s related to your jewels or your debutante’s ball, I have no idea how.”
+
+“Yeah, but some of those Tongs can be just as bad as Yakuza I hear.”
+
+“Actually, Chase, that’s a bit of a fallacy, you see, the anti-Quing movement in the 17th century---”
+
+“Give me the history letter later.” I slipped a ten behind my back and into his pocket.  “Same time tonight?”
 
 “You got it. Watch your caboose.”  He got up and started for the exit.  
 
-Weatherby entered the lobby seconds later. “Ladies, I do apologize for the interruption.  Maestro Bellamy has agreed to let you begin decorating the ballroom. However, he asked that you keep noise to a minimum and not disturb the band, as they are in a very delicate part of their rehearsals.
+Weatherby entered the lobby seconds later, nervously wiping something off his face with a handkerchief. “Ladies, I do apologize for the interruption.  Maestro Bellamy has agreed to let you begin decorating the ballroom. However, he asked that you keep noise to a minimum and not disturb the band, as they are in a very delicate part of their rehearsals.
 
  A smattering of approving grumbles rose from the ladies as they made their way to the elevator. I grabbed a copy of the morning paper off the table next to me and kept my eyes on the door to Weatherby’s office while he escorted the mothers to the elevators.
 
@@ -60,7 +68,7 @@ She stopped a few feet short, not really eavesdropping, but listening to ensure 
 
 The leader seemed to be a brunette she knew as Gladys Balsam, whose family built and owned a large steel mill in the mud cove area of Weaver Bay, a few miles outside the city. “We already know where the target is, and the plan has been in motion for two weeks now.  I don’t know why she’s getting cold feet now.”
 
-“She hadn’t met the Chinaman before,” said Clara Hofbaue, a stern-looking blonde girl and heiress to a family architecture fortune whose name was on half the buildings in the city, including the Hotel Beauchamp.
+“She hadn’t met the Chinese man before,” said Clara Hofbaue, a stern-looking blonde girl and heiress to a family architecture fortune whose name was on half the buildings in the city, including the Hotel Beauchamp.
 
 “What difference does that make? We paid his fee. He’ll do as we ask,” Gladys argued.
 
@@ -68,13 +76,13 @@ Hilda Laskey, the rosy, strawberry-haired daughter of a prominent real-estate ma
 
 “He’s a professional. We told him where the target was. We told him the best time to make the snatch. We gave him the time and location of the drop-off.  He’ll do as he’s told if he wants the second half of his money.”
 
-Pricilla Moray buried her hands in chestnut curls and shook her head. “Great, but what if our demands aren’t met and someone involves the police? We’re cooked. What do we do then?!”
+Pricilla Moray buried her hands in chestnut curls and shook her head. “Great, but what if our guest doesn’t go along with our plan? We’re cooked. What do we do then?!”
 
-The sixth girl, a tall, skinny, sandy-haired girl Sally knew as Margaret Polinsky, caught sight of her, slapped Pricilla on the arm to shut her up, and smiled broadly.  “Hello!  We didn’t see you there.  Sorry,” she said sweetly.
+The sixth girl, a tall, skinny, sandy-haired girl Sally knew as Janette Kern, caught sight of her, slapped Pricilla on the arm to shut her up, and smiled broadly.  “Hello!  We didn’t see you there.  Sorry,” she said sweetly.
 
 Sally was ghost-white by then and started walking backward.  “No, it’s completely my fault.  I just wondered if any of you wanted to help set up streamers.  I can see you’re busy, though.  I didn’t mean to bother you.  I’ll find someone else. Go ahead with whatever you were talking about ... I mean ... if you were talking ... I have no idea what you were doing here.  As I said, I just wandered up.  I wasn’t really paying attention to anything.  Well, okay, we’ll talk later then.  Bye.”
 
-Now, of course, I know all this because ten minutes later, Reggie handed me a note from Sally detailing it all and telling me to stay alert and keep watching the jewels.  She was going to investigate the girls, the Chinaman, the drop-off point, and the so-called timetable.
+Now, of course, I know all this because ten minutes later, Reggie handed me a note from Sally detailing it all and telling me to stay alert and keep watching the jewels.  She was going to investigate the girls, the Chinese man, the drop-off point, and the so-called timetable.
 
 Aww, cripes. I should have spotted this the moment I laid eyes on the kid. She's another one of those reckless girls who thinks she's Nancy friggin' Drew. Ugh. Now, I've never actually crossed paths with Drew, but if I ever did, I'd seriously love to take this girl to task for claiming to be a detective.
 

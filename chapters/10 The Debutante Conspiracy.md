@@ -6,27 +6,27 @@ The group had gathered in one of the sitting rooms adjacent to the banquet hall 
 
 “We’re certain everything is ready for tomorrow?” Gladys said, in her usual authoritative tone that bordered on condescension.
 
-“Our man will be dropping the case off in the lobby at 7 PM,” Clara said. “I reserved a suite on the 19th floor for us.  He will leave instructions for the bellhop to bring the case upstairs to us.  Once we have it, the hard part will be keeping everything quiet and under wraps until the ball starts. If anybody learns about the suite, or what we’re hiding in there, then the entire plan is shot.”
+“Our man will be bringing our guest by at 7 PM,” Clara said. “I reserved a suite on the 19th floor for him.  He will escort him up to the suite. After that, the hard part will be keeping everything quiet and under wraps until the ball starts. If anybody learns about the suite, or our guest, then the entire plan is shot.”
 
-“One of us needs to be in the room when the case arrives,” she heard Gladys say. “If the bellhop tries to unpack it and sees what’s inside, we’re done for.  If it should accidentally come open in the lobby or the hallway, it would be even worse.”
+“We need to be there to present our plan and our offer to him,” she heard Gladys say. “If somebody sees him and recognizes him, we’re done for.  If they should somehow realize he’s here at our behest, it would be even worse.”
 
-“We just need to keep everything together for an hour or so before we make the big reveal and present our demands,” this from Pricilla.
+“We just need to keep everything together for an hour or so before we make the big reveal and present our demands,” this was from Pricilla.
 
-So that was it, Sally realized. They sole the necklace and intended to use it to blackmail her family into … what? … that was the missing piece. For that matter, if they are making demands publicly, it is really blackmail? It couldn’t be money they were after,
+So that was it, Sally realized. They stole the necklace and were handing it off to someone tomorrow night.  The only question was: For what?  Who was the mysterious man who was coming?  What did he have to do with the necklace?  Was he a fence of some sort?  
 
-“That’s another thing to consider.  What if Bellamy refuses to go along with us?” asked Janette, who always seemed to be nervous about something or other.
+“That’s another thing to consider.  What if Bellamy refuses to go along with this?” asked Janette, who always seemed to be nervous about something or other.
 
-Bellamy? Sally thought. It made sense.  The only time Bellamy had left the ballroom was to go down to Weatherby’s office. If he stole the necklace, however, why was it being delivered in a case tomorrow night by a hired thug? What role did he play? Was he behind all of this, or just someone they’d duped into going along.
+Bellamy? Sally thought. It made sense.  The only time Bellamy had left the ballroom was to go down to Weatherby’s office. Did he somehow steal the necklace while he was in there?  The timing fit, but it would have meant Weatherby was somehow involved.  So, what role did he play? Was he behind all of this, or just someone they’d duped into going along.
 
 “By that point, he won’t have a choice. We’re holding all the aces.  No, this is going to work. Besides, it’s our party, regardless of what our parents seem to think. We’re doing this on our own, without anybody’s help.”
 
-That was it, wasn’t it? Somehow these six screwups were the masterminds behind the theft? It seemed highly unlikely to her.
+That was it, wasn’t it? Somehow these six spoiled socialites were the masterminds behind the theft? It seemed highly unlikely to her.
 
-“Well, it was my older brother who gave us the idea,” Hilda Laskey said. That made a degree of sense. Her brother was some kind of radio journalist. It’s likely he heard the story of the necklace, its importance, and its unveiling.  It was conceivable that he pointed this out to his sister, possibly looking for a story.
+“Well, it was my older brother who gave us the idea,” Hilda Laskey said. That made a degree of sense. Sally remembered hearing her brother was some kind of radio journalist. It’s likely he heard the story of the necklace, its importance, and its unveiling.  It was conceivable that he pointed this out to his sister, possibly looking for a story.
 
 “True. We came up with most of the actual plan, though,” Gladys corrected, obviously wanting to maintain her fragile hold on the leadership of the gang.
 
-Janette chimed in on cue. “Well, technically, we did hire that scary guy to actually make the grab.” She was the only one who seemed nervous about him.
+Janette chimed in on cue. “Well, technically, we did hire that scary guy to the dangerous part.” She was the only one who seemed nervous about him.
 
 “Okay, I suppose we did.”
 
@@ -54,15 +54,15 @@ The curtain was suddenly thrown back, and Sally let out a little shriek of frigh
 
 “I’m sorry, you startled me,” she whispered, not wanting the Upper Weaver girls in the next room to hear her voice while they were going over their plans for the following evening.
 
-The man tapped her feet with a long metal pipe of some sort. Did he mean to break her legs?  That would mean he must somehow be involved with the girls and their plans. It dawned on her that he was like the Chinaman the girls had hired to transport her stolen necklace. She thought briefly about calling him out then and there, but couldn’t find the courage.
+The man tapped her feet with a long metal pipe of some sort. Did he mean to break her legs?  That would mean he must somehow be involved with the girls and their plans. It dawned on her that he was like the Chinese man the girls had hired to transport her stolen necklace. She thought briefly about calling him out then and there, but couldn’t find the courage.
 
-The man tapped her left shoe, then her right shoe. She looked at him, confused, until he made a gesture with his hands.  He wanted her to lift her feet.  Slowly she obliged by lifting her left foot. He immediately reached down and grabbed it, turning her foot to expose the sole of her saddle shoes. He studied it for a moment, then let it go, made a grunting noise, and pointed to her right foot.  She repeated the process.
+The man tapped her left shoe, then her right shoe. She looked at him, confused, until he made a gesture with his hands.  He wanted her to lift her feet.  Slowly she obliged by lifting her left foot. He immediately reached down and grabbed it, turning her foot to expose the sole of her saddle shoes. He studied it for a moment, then let it go, grunted, and pointed to her right foot.  She repeated the process.
 
 It dawned on her that he was likely determining the size of her feet in order to pick the bucket they would soon be cemented into.
 
 Eventually, he made a similar grunting noise and released her right foot.  Then he mumbled something in a disappointing tone and began shaking the pipe in his hand.
 
-“Look, honestly, I didn’t hear anything.  I just heard the piano and decided to come listen. I don’t know anything about whatever they were talking about or any kind of plans they might have or anything that involves you, so I’ll just be leaving now, I think I hear my father calling, he’s a very powerful and influential person you know…” she quickly ran out of breath and darted for the elevators.
+“Look, honestly, I didn’t hear anything.  I just heard the piano and decided to come listen. I don’t know anything about whatever they were talking about, any plans they might have, or anything involving you, so I’ll just be leaving now. I think I hear my father calling. he’s a very powerful and influential person you know...” She quickly ran out of breath and darted for the elevators.
 
 The Chinese man didn’t follow.
 
@@ -92,8 +92,8 @@ Once she was completely out of sight and on her way up, I looked over and saw Re
 
 “Isn't  she  wonderful, Mr. Chase.  Smart, tough, wise--"
 
-“—and looks great in knee-socks and saddle shoes?”
+“---and looks great in knee-socks and saddle shoes?”
 
-“Yeah…”
+“Yeah...”
 
-I smacked the back of his head so hard his hat flew off. “Knock it off! I need your head in the game! My eyes and ears, remember?  Now come on, we've got work to do.”  
+I smacked the back of his head so hard his hat flew off. “Knock it off! I need your head in the game! My eyes and ears, remember?  Now come on, we've got work to do.”

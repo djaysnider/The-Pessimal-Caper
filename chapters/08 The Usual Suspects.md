@@ -10,11 +10,11 @@ There wasn’t much time, the ball was in just over 24 hours, and I had less tim
 
 “It’s, Jack, actually.  Jack Chase. Can you keep your voice down for a minute?”
 
-“NEIGHO, POPS. I’M SLAVIN’ FOR FEWS AND TWO HERE. IF I GET QUIET, THE MONEY DRIES UP.”
+“Neigho, Pops. I’m slavin’ for fews and two here. IF I GET QUIET, THE MONEY DRIES UP.”
 
 I tossed him a quarter, and leaned in.  “Yesterday afternoon, you were here in the lobby right?”
 
-“SOLID, POPS. HAD THE WHOLE ROOM CORNER SEWED UP. HEY NOW, I KNOW YOU.”
+“Solid, pops. Had the whole room corner sewed up. Hey now, I know you.”
 
 “Keep your voice down, kid.”
 
@@ -26,55 +26,55 @@ I tossed him a quarter, and leaned in.  “Yesterday afternoon, you were here in
 
 Half the lobby turned to look at us.  “Exactly,” I said.
 
-“COME OFF IT, EVERYBODY KNOWS YOU’RE THE DICK THAT QUEEN HIRED.”
+“Come off it, everybody knows you’re the Dick that queen hired.”
 
 “Queen?”  
 
-“SHE’S A REAL HUMMER.”
+“She’s a real hummer.”
 
-“She’s not royalty?”
+“She’s not royalty, kid.”
 
-“NAH, SHE’S IN THE GROOVE.”
+“Nah, she’s in the groove.”
 
 “She’s in a groove?”
 
-“YOU'RE ONE SQUARE SNATCHER, JEFF.”
+“You're one square snatcher, Jeff.”
 
 “I've been called worse by better people, so don’t waste your breath.  On second thought, that’s not much of a loss either.” I held up the other quarter. “Did you notice anybody paying particular attention to us when we were talking yesterday?”
 
-“HARD TO SAY.  PRETTY MUCH EVERYBODY WAS LAMPIN’ THAT FINE DINNER.”
+“Hard to say.  Pretty much everybody was lampin’ that fine dinner.”
 
 “It was closer to lunch.”  I handed him the quarter, then added, “Speak normal,” before I let go of it.
 
-“THERE WAS HALF A DOZEN OF THE HOTEL STAFF AND A COUPLE OF THEM CONVENTION GUYS OVER THERE.” He pointed toward the concierge desk.  Close enough to where we were to be of concern. “THEN OVER BY YOU THERE WAS THAT BEVERLY HILLS COUPLE. THEY WERE SITTIN’ ACROSS FROM SLUGGER SLATTERY. THEN THERE WAS THAT ICKY CAT WITH THE NICE FRONT ON YOUR LEFT DUKE.”
+“There was half a dozen of the hotel staff and a couple of them convention guys over there.” He pointed toward the concierge desk.  Close enough to where we were to be of concern. “Then over by you there was that Beverly Hills DAME. SHE WAS sittin’ across from Slugger Slattery. Then there was that icky cat with the nice front on your left duke.”
 
 “English, son.”
 
-“NAH, NOT ENGLISH. PRETTY SURE HE WAS A CHINAMAN.”
+“Nah, not English. Pretty sure he was a Chinese man.”
 
 “Purple suit?  Wide-brimmed hat?”
 
-“THAT’S THE CAT.”
+“That’s the cat.”
 
 “Luk See.”
 
-“SEE WHAT?”
+“See what?”
 
 “Nevermind.  He’s Japanese. Is that everyone?”
 
-“THERE WAS ONE OTHER GUY. REAL YARD DOG IN A WINKLED VINE.  I THINK HE JUST JUMPED INTO PORT.”
+“There was one other guy. Real yard dog in a winkled vine.  I think he just jumped into port.”
 
 “He jumped into what?”
 
-“PORT. TOWN. YOU HEP?”
+“Port. Town. You hep?”
 
 “I'm asking the questions, son.”
 
-“DON'T BLOW YOUR WIG, JEFF. CAT WAS SALTY, SEE? HAD A SQUEAK BOX AND A SKY PIECE LIKE A BUSTED LAMPSHADE.”
+“Don't blow your wig, Jeff. Cat was salty, see? Had a squeak box and a sky piece like a busted lampshade.”
 
 By then, I was sure the kid was just leading me on, hoping to get another quarter.  The kid did promise to come find me if he heard anything about stolen jewelry. I could only hope he didn’t.
 
-The “Beverly Hills” couple he referenced were Joe and Lacey Barnes. They were big-time philanthropists looking to get a new theater built in the city.  Not the type of people who would steal jewels from a little girl’s debutante ball, but then those Beverly Hills types can get a little strange at times.
+The “Beverly Hills dame” he referenced was and Lacey Adams-Barnes. She and her husband Joe were big-time philanthropists looking to get a new theater built in the city.  Not the type of people who would steal jewels from a little girl’s debutante ball, but then those Beverly Hills types can get a little strange at times.
 
 I spotted them at the hotel bar. He smoked a cigar and nursed a martini.  She was sitting next to him, staring off into the distance, hands clutching her bag in her lap.
 
@@ -122,7 +122,7 @@ This was surprising. “They have a cab station outside.”
 
 “Oh, how intelligent and well-trained the seafood in Baltimore is.”
 
-“Intelligent … seafood?”
+“Intelligent ... seafood?”
 
 “Yes, apparently. He says the Blue Crab there make an amazing spinach artichoke dip. Who would have guessed they could be trained to cook?”
 
@@ -130,7 +130,7 @@ This was surprising. “They have a cab station outside.”
 
 “Yes, there was that fella in the purple suit who hid behind the column.”
 
-“Luk see,” I offered.
+“Luk See,” I offered.
 
 “See what?”
 
@@ -144,9 +144,9 @@ This was surprising. “They have a cab station outside.”
 
 “I believe he can still be Japanese.”
 
-“Well, no, then that would mean we’re in Japan. I’m sure I could tell the difference."
+“Well, no, then that would mean we’re in Japan. I’m sure I could tell the difference.
 
-I decided I should try to play along and beat the woman at her own game. “Okay, but there are a lot of people speaking Chinese in the hotel as well. If they were Americans don’t you think they’d be speaking English?”
+I decided I should try to play along and beat the woman at her own game. “Okay, but there are a lot of people speaking Chinese in the hotel as well. If they were Americans, don’t you think they’d be speaking English?”
 
 “That would make them Englishmen.”
 
@@ -166,7 +166,7 @@ She thought for a moment. “Well, there was a man who kept looking at his watch
 
 “No, he was American.”
 
-“Yes, but did he look like … nevermind.”
+“Yes, but did he look like ... nevermind.”
 
 “He told the concierge he was from Cleveland.”
 
@@ -182,9 +182,9 @@ She thought for a moment. “Well, there was a man who kept looking at his watch
 
 “It’s all a bit fuzzy. Almost everyone was going somewhere. Upstairs, downstairs, out the front door, into the dining room. No one seemed content to just be in the lobby. Except me. I was perfectly happy sitting there watching people refuse to stay. It’s like watching a parade that forgot the marching part. Oh, and the potted palm near the sofa kept leaning slightly to the left. I straightened it twice. The second time it leaned again, so I whispered that if it continued I would have to report it for loitering. It behaved after that. Plants can be very responsive if you speak to them firmly.”
 
-We were now diving into insanity, and the word count has met it’s minimim for this chapter, so I decided to cut the pair loose. “I… see. Thank you for your time, Miss Barnes.”
+We were now diving into insanity, and the word count had met its minimum for this chapter, so I decided to cut the pair loose. “I... see. Thank you for your time, Miss Barnes.”
 
-“You’re welcome,” she said with great enthusiasm. “And if you ever need someone to watch a lobby again, just say the word. I’m excellent at noticing things that other people walk right past—like lonely watches, nervous elevators, and potted palms with poor posture.”
+“You’re welcome,” she said enthusiastically. “And if you ever need someone to watch a lobby again, just say the word. I’m excellent at noticing things that other people walk right past---like lonely watches, nervous elevators, and potted palms with poor posture.”
 
 “I will remember that.”
 
@@ -234,4 +234,4 @@ As luck would have it, five minutes later, Luk See stepped off the elevator, hea
 
 “Because I’m asking you.”
 
-“Why would I know? I’m not working for them,” he said as he passed through the revolving doors and out into the street.
+“Why would I know? I’m not working for them,” he said as he pass through the revolving doors and out into the street.

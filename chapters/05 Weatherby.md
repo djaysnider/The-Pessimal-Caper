@@ -24,7 +24,7 @@ Carson continued to bow as he backed out of the manager's office, only to be rep
 
 “But we need to do it discreetly this time.”
 
-“Discreetly, Mr. Weatherby.”
+“Discreetly. Of course, Mr. Weatherby.”
 
 “No, you do understand what ‘discreetly' means, don’t you?  I had the impression you were confused by the word last time.”
 
@@ -68,7 +68,7 @@ Bellamy had to admit he did not.
 
 “Bellamy! The contract does not specify ‘exclusive' access.”
 
-“It was implied, sir.  Surely you understand that additional bodies moving through the room, along with the din of conversation and other gear being moved about, seriously undermines my ability to properly assess room acoustics. How can I perfectly balance the dark, woody timbre of the clarinets against the deep, rich tone of the trombones if someone changes the color of the tablecloths and moves a centerpiece three inches to the left?  No, sir, my professional credibility is on the line, Mr. Weatherby. My very career and membership in the union hinge upon successful completion of the contract I signed.”
+“It was implied, sir.  Surely, you understand that additional bodies moving through the room, along with the din of conversation and other gear being moved about, seriously undermines my ability to properly assess room acoustics. How can I perfectly balance the dark, woody timbre of the clarinets against the deep, rich tone of the trombones if someone changes the color of the tablecloths and moves a centerpiece three inches to the left?  No, sir, my professional credibility is on the line, Mr. Weatherby. My very career and membership in the union hinge upon successful completion of the contract I signed.”
 
 “Bellamy.” Weatherby placed both hands firmly on the desk in front of him, which suddenly made Bellamy glad there wasn't a pointy letter opener in sight. “You know the type of people you will be playing for, correct?”
 
@@ -84,15 +84,15 @@ Bellamy scrunched his face up. “I understand, Mr. Weatherby.”
 
 “Now, of course, I would never ask you to break a contracted arrangement simply to make my paying guests happy, even if they are much more important than you. Likewise, I would never expect you to undermine your fine skills in acoustic architecture or compromise the subtleties of your performance. However, if you do not work out some sort of compromise in the next 30 minutes, I am going to use every power at my disposal to make sure the only gigs you and your orchestra ever play again involve cotton candy, the pier, and unattended children with very sticky fingers that insist on touching everything.  Are we clear, Maestro?”
 
-“I will see what I can do, Mr. Weatherby,” Bellamy said as he quickly backed out of the room and tore across the lobby, nearly colliding with the kid and me.
+“I will see what I can do, Mr. Weatherby,” Bellamy said as he quickly backed out of the room and tore across the lobby, nearly colliding with Reggie and me.
 
 “The Maestro’s really worked up about something this morning,” Reggie said.
 
-“He’s not the problem kid.  The problem is: if the jewel thief gets the goods out of Weatherby’s office, how does he plan to get them through the lobby and out the door without raising suspicion?”
+“He’s not the problem kid.  The problem is: if the jewel thief gets the goods out of Weatherby’s office, how does he plan to get them through the lobby and someplace safe without raising suspicion?”
 
 “He makes a clandestine handoff to someone in the lobby, then leads your men on a wild goose chase?” The kid looks hopeful, probably dreaming he’s a natural at this kind of work.
 
-“Only in the movies, kid.  In real life, as soon as he does that, his friend points the original thief out to the doorman on his way out.  The thief gets arrested, and he never sees his ‘friend’ or the jewels again.  How many street exits does the hotel have?”
+“Only in the movies, kid.  In real life, as soon as he does that, his friend turns on him and points the original thief out to the doorman on his way out.  The thief gets arrested, and he never sees his ‘friend’ or the jewels again.  How many street exits does the hotel have?”
 
 “Six: main doors, valet exit, parking garage, two fire exits, and the loading dock.”
 
@@ -110,19 +110,19 @@ Bellamy scrunched his face up. “I understand, Mr. Weatherby.”
 
 “Let’s take a look at those docks, kid.”
 
-Reggie took me down a service hallway, past an old freight elevator to the loading dock behind the hotel.  Sure enough, it was just a short distance from the kitchen, the laundry room, and the main hallway---close to everything, but carefully tucked out of sight so nobody would think twice about it.  Best of all, it was completely dark, aside from a strange blue-green glow.
+Reggie took me down a service hallway, past an old freight elevator to the loading dock, in the corner right behind the hotel next to dark alley.  Sure enough, it was just a short distance from the kitchen, the laundry room, and the service hallway---close to everything, but carefully tucked out of sight so nobody would think twice about it.  Best of all, it was completely dark, aside from a strange blue-green glow coming from the street below.
 
 “What’s that stuff?” Reggie asked.
 
-I knelt down and examined the puddle, careful not to touch anything.  “Phosphorescence. Some kind of chemical runoff,” I said. We traced the thin stream from the puddle back around the corner of the dock to a leaky pipe sticking out of the ground at the base of the building.  Whatever it was glowed much brighter back here at the source.  “Where does this pipe come from?  What’s under this part of the hotel?”
+I jumped down and examined the puddle, careful not to touch anything.  “Phosphorescence. Some kind of chemical runoff,” I said. We traced the thin stream from the puddle back around the corner of the dock to a leaky pipe sticking out of the ground at the base of the building on the alley-side.  Whatever it was glowed much brighter back here at the source.  “Where does this pipe come from?  What’s under this part of the hotel?”
 
-Reggie thought for a moment.  “There’s a basement.  It’s mostly just used for junk storage.  Old, outdated furniture, art, furnishings like that.  Oh, and the boiler is down there.  I can show you where---”
+Reggie thought for a moment.  “There’s a basement storage room.  It’s mostly just used to keep junk. Outdated furniture, art, old business records, stuff like that. I can show you where---”
 
 “No!”
 
 “Are you sure?”
 
-I jerked a thumb at the glowing blue goo. “Positive.”
+I jerked a thumb at the glowing blue-green goo. “Positive.”
 
 “So, wait a minute.  You’re a big, tough detective with a gun who takes on underworld criminals, but you’re afraid of basements?”
 
@@ -150,7 +150,7 @@ I jerked a thumb at the glowing blue goo. “Positive.”
 
 “Now, I am almost certain---”
 
-“Does it have noises?  Not just the furnace or the boiler making gurgling and hissing noises, but more like a former manager moaning and screaming because his corpse has been laid out in the middle of a giant pagan resurrection symbol made up of broken Christmas ornaments and cleaning supplies?”
+“Does it have noises?  Not just water pipes and drainpipes, but more like a former manager moaning and screaming because his corpse has been laid out in the middle of a giant pagan resurrection symbol made up out of broken Christmas ornaments and cleaning supplies?”
 
 “I’m pretty sure Pagans don’t actually---”
 
