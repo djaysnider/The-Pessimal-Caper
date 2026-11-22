@@ -1,5 +1,7 @@
 # Jack Chase
 
+![01](./images/01.png)
+
 It was a cold, dreary Wednesday two years ago.  It had rained all day, and the city smelled like dead fish and wet feet.  The humidity hung thick in the air somewhere between a New Orleans roux and full-blown etouffee. I had already polished off two cases that day, along with a pretty good bottle of rye I bought after a nice old lady paid me to find her cat. I was ready to leave, ready to slink out to the corner and start the serious drinking, when I saw a shadow at the door.  When it creaked open, the light behind it slowly shaped that ominous shadow into an even more dangerous form: an hourglass figure in a pencil skirt and a veiled cartwheel hat, slinking into my office.
 
 I knew intuitively I was in trouble.  Her legs were far too long for the frame they were supporting, her hair was the color of that crud-covered cinnamon hard candy at the bottom of your grandmother's purse, and her lips were slathered in something waxy and shiny that matched the color a bit too perfectly. Her coat was made from some animal that probably thought it was more dangerous than she was, but her attitude dared anyone to ask what kind of fur it was.  I would have bet money she’d killed it herself.

@@ -1,5 +1,7 @@
 # Sally Montana
 
+![03](./images/03.png)
+
 Like any red-blooded American male, I hate shopping. Always have. I've been shot four times, stabbed three, poisoned once, and hit in the head with a sap so many times that I’ve got a permanent indentation in my skull.  Nothing, however, gets my blood boiling faster than the idea of spending an afternoon in a department store with a woman who won’t know what she wants until she's seen everything she doesn't.
 
 I’m a man.  I go to the store because I need something.  If I need multiple things, I make a list.  I buy what's on the list, check it off, pay, and leave.  A woman, on the other hand, goes into a store because she “needs something,” finds it, decides she doesn't like it, finds something else, decides she liked the first thing better, then buys a third thing because the salesgirl said it was fashionable. By the time she's finished, the first thing has gone out of fashion, the third thing has sold out, and the salesgirl has retired to Florida.

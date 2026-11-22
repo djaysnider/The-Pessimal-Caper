@@ -1,5 +1,7 @@
 # Weatherby
 
+![05](./images/05.png)
+
 I met back up with Reggie at 8 AM, Friday morning, just as Horace Weatherby arrived to find his hotel had finally descended into complete chaos. Silas Carson, the night manager, met him at his office door.  “Sir, I'm so sorry. There was nothing I could do.  They simply showed up at 5 AM and started unloading everything right there in the middle of the lobby.”
 
 “Carson! Slow down!” Weatherby snapped. “What have we talked about.  Take big problems, break them down into smaller problems, and organize them.”

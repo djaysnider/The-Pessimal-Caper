@@ -1,5 +1,7 @@
 # Reggie O'Grady
 
+![02](./images/02.png)
+
 The Hotel Beauchamp was normally quite calm, almost docile.  That weekend’s chaos started on Thursday morning, hours before I got there and almost a full day before it was nearly destroyed by debutantes and … well … I don’t want to get ahead of myself.
 
 “O’Grady, Mr. Hu's trunk just arrived.  Take it up to room 504 and unpack it for him. He'll be late checking in,” the hotel manager yelled, a bit more aggressively than was called for.

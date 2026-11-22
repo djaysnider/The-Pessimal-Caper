@@ -1,5 +1,7 @@
 # The Harmless Dead
 
+![12](./images/12.png)
+
 “Thanks, doll, I owe you one,” I said.
 
 She put the pen back in her purse. “You're lucky I've been trained to handle one of these.”

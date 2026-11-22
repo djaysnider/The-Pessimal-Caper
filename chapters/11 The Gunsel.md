@@ -1,5 +1,7 @@
 # The Gunsel
 
+![11](./images/11.png)
+
 The dinner rush had subsided.  The parents were doing the social thing in the lounge waiting for Doctor Creepy and his incredible trained ventriloquist to do their shtick.  I wasn't about to have any part of that mess.  Reggie was back at his post, waiting for Eugene to come relieve him, still fawning over that Montana chick as if a future high society dame like that was going to drop everything and run away with a bellboy.  I tried to tell him I stood a better chance with an opportunistic social climber like Peyton Ashton-Hamiton than he had with second generation money like that.  You can't talk to kids these days though.
 
 The second shift at the hotel is pretty routine.  Weatherby usually stuck around for a few hours until arriving guests were settled in and settled in guests were sufficiently liquored up.  That gave the staff a few hours of peace until Carson came in for the night shift, and the hotel went into “preparation" mode for the next morning's flurry of breakfast rush, checkouts, cleaning, and check-ins.  This was the quiet; the calm before an inevitable storm.

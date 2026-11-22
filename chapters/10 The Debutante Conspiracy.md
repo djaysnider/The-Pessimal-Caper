@@ -1,5 +1,7 @@
 # The Debutante Conspiracy
 
+![10](./images/10.png)
+
 While Reggie and I, in a turn of fortune that I probably should have seen coming, were being chased by zombies and targeted by a particularly malicious ventriloquist’s dummy that I was sure was targeting us, little Sally Montana was doing her part, in a cute little kid-detective way, to solve the mystery of her stolen jewels. Once the obligatory dinner was completed, celebrating the tireless few who showed up early to hang tissue paper and streamers, the parents retired to the lounge and left the debutantes to their own devices. Sally kept a close eye on Gladys Balsam and her Upper Weaver conspirators.
 
 The group had gathered in one of the sitting rooms adjacent to the banquet hall on the second floor to hear Hilda play a rather poor rendition of  “Goodnight My Beautiful.” Sally parked herself just around the corner of the room’s arched entryway, hiding behind the curtain, and straining to hear the muffled conversations beneath the awkward playing and Janette’s wobbly singing.

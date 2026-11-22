@@ -1,5 +1,7 @@
 # The Long Lunch
 
+![07](./images/07.png)
+
 By mid-afternoon, sitting around watching Weatherby’s office from the lobby, I was getting a bit stir-crazy. East Asian men in expansive suits continued to stream in at a regular pace, each expertly handled and placed by Reggie and Eugene. The tong was definitely up to something. I just hadn't figured out how they fit in with a debutante ball and likely jewel heist, though.  Twice Luk See wandered through the lobby, each time giving me his smug self-assured smile and a little salute with the tip of his wide-rimmed fedora. I was certain he knew what was going on, but I couldn't risk dropping my guard on Weatherby's door.
 
 Around noon, a boisterous man in an equally boisterous suit wandered in and slipped Reggie a fiver.  I later learned he was Thurston Goldstien, city water commissioner, and something of a notorious ladies’ man.  He was formerly attached to Eliza Softfoot, a noted socialite and tea snob from the Roberts Peak area, but that apparently fell apart months ago during a complex situation during the great blackout.

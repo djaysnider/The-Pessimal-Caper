@@ -1,5 +1,7 @@
 # Luk See
 
+![04](./images/04.png)
+
 I arrived at the Hotel Beauchamp on Thursday evening around 5 PM.  The lobby crowd was thinner and sweatier than usual, as I had hoped.  I circled the lobby twice, casing the joint.  No sign of Hotel Detective Alastair Pierce. I considered that a small victory.  There was also no sign of any known criminals, fences, or jewel thieves, which, I must admit, worried me a bit.
 
 “You look worried, Mr. Chase,” said a slinky contralto that I recognized instantly.  

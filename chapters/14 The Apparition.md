@@ -1,5 +1,7 @@
 # The Apparition
 
+![14](./images/14.png)
+
 “Apparition, eh?  What’s that make you, some kind of masked vigilante?”
 
 He made a flourish with his coat and struck a pose as you would find in a comic book. “Defender of the innocent. Friend to those in need. Scourge of evil doers,” he said loudly and with the enunciation of a sportscaster announcing the home team.

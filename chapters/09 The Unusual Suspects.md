@@ -1,5 +1,7 @@
 # The Unusual Suspects
 
+![09](./images/09.png)
+
 It was the dinner rush, and I still had very little to go on.  A stranger with a violin case and wide-brimmed hat, a former Yakuza assassin who, by his own admission, was working, but not for the Chinese Tong, and at least by his story, not after the necklace, which was already stolen anyway.  If Peyton was right, one of the mothers was certainly behind the whole thing, but given the window in which the crime could have been perpetrated, they were all preoccupied with decorated or otherwise tormenting the hotel staff.  Unless, of course, that was an intentional distraction while a hired expert thief did the job.
 
    I cornered Reggie in the back hall near the service elevator which he was loading with another cart of bags from the new arrivals. “Kid, I need a favor.”

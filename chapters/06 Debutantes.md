@@ -1,5 +1,7 @@
 # Debutantes
 
+![06](./images/06.png)
+
 Sitting in the lobby since the night before, and for the entire time Reggie and I walked what I was increasingly convinced was about to become a crime scene, I had my trusted contact, Mickey "The Meter" Malone, watch Weatherby's office.  Mickey was a cab driver and had been since the Coolidge administration. He claims just about every criminal in the city has ridden in his cab at one point, and some still do regularly. The difference is, now, they're Senators.
 
 Before you go questioning me about drafting cabbies into my cases, let me explain: Every detective has three essential connections he relies on.  The first is a bartender who miraculously overhears news about everything shady going on.  It doesn't matter if it wasn't even said in his bar.  I don't know how this works; maybe there's a surveillance system, and they all compare notes on the weekends.

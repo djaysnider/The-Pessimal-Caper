@@ -1,5 +1,7 @@
 # The Usual Suspects
 
+![08](./images/08.png)
+
 There wasn’t much time, the ball was in just over 24 hours, and I had less time than that to save Sally’s big day and my $200 bucks.  By my estimates, we had at least a dozen suspects who were in the vicinity of the bell boy’s stand the previous afternoon. Not wanting to waste any time, I immediately cornered the paper boy who works the lobby and would have seen just about everybody who came in and out over the course of the day.  I pulled two quarters out of my waist pocket and tried to approach him quietly in between rushes of people.
 
 “EXTRA! EXTRA! READ ALL ABOUT IT! WALTERS LEADS CINCINNATI TO EVEN THE SERIES IN A 5-2 VICTORY.”
