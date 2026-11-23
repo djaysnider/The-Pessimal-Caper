@@ -1,5 +1,7 @@
 # Edward Berkman
 
+![a_black_and_white_vintage_film_noir_style_still_a](./images/a_black_and_white_vintage_film_noir_style_still_a.png)
+
 As we approached the entrance to the lounge, I was quick to get the Montana girl away from us. “Listen, kid, if Berkman does turn out to be behind this, and not some alpha zombie controlled by Dr. Horrible there, it's probably best if we keep the dummy away from him.  Why don't you take it and see if you can flush out some more of the staff coming off work and get them to the basement before they start eating the guests and spoiling all of tonights' fun?”
 
 “Good idea, Mr. Chase,” she said and started off for the main elevators.
