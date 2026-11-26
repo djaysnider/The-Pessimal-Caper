@@ -8,19 +8,19 @@ The group had gathered in one of the sitting rooms adjacent to the banquet hall 
 
 “We’re certain everything is ready for tomorrow?” Gladys said, in her usual authoritative tone that bordered on condescension.
 
-“Our man will be bringing our guest by at 7 PM,” Clara said. “I reserved a suite on the 19th floor for him.  He will escort him up to the suite. After that, the hard part will be keeping everything quiet and under wraps until the ball starts. If anybody learns about the suite, or our guest, then the entire plan is shot.”
+“Our man will be bringing him by at 7 PM,” Clara said. “I figure we’ll meet with him and make our proposal straight away.  He sure to accept, who could resist? After that, the hard part will be keeping everything quiet and under wraps until the ball starts.”
 
-“We need to be there to present our plan and our offer to him,” she heard Gladys say. “If somebody sees him and recognizes him, we’re done for.  If they should somehow realize he’s here at our behest, it would be even worse.”
+“Remind our friend to be very careful with our guest,” she heard Gladys say. “If somebody sees him and recognizes him, it’s all over.  If they should somehow learn we’re involved, it would be even worse.”
 
-“We just need to keep everything together for an hour or so before we make the big reveal and present our demands,” this was from Pricilla.
+“We just need to keep everything together for an hour or so. Once the ball is in full swing and our parents have had a few drinks, it will be easier to move around,” this was from Pricilla.
 
 So that was it, Sally realized. They stole the necklace and were handing it off to someone tomorrow night.  The only question was: For what?  Who was the mysterious man who was coming?  What did he have to do with the necklace?  Was he a fence of some sort?  
 
-“That’s another thing to consider.  What if Bellamy refuses to go along with this?” asked Janette, who always seemed to be nervous about something or other.
+“That’s another thing to consider.  What if Bellamy refuses to go along?” asked Janette, who always seemed to be nervous about something or other.
 
-Bellamy? Sally thought. It made sense.  The only time Bellamy had left the ballroom was to go down to Weatherby’s office. Did he somehow steal the necklace while he was in there?  The timing fit, but it would have meant Weatherby was somehow involved.  So, what role did he play? Was he behind all of this, or just someone they’d duped into going along.
+Bellamy? Sally thought. It made sense.  The only time Bellamy had left the ballroom was to go down to Weatherby’s office. Did he somehow steal the necklace while he was in there?  The timing fit, but it would have meant Weatherby was somehow involved.  So, what role did he play? Was he behind all of this, or just someone they’d duped into going along?
 
-“By that point, he won’t have a choice. We’re holding all the aces.  No, this is going to work. Besides, it’s our party, regardless of what our parents seem to think. We’re doing this on our own, without anybody’s help.”
+“By that point, he won’t have a choice if he knows what’s good for him. I’m telling you, this is all going to work. What’s better, is that we’re doing this all on our own, without anybody’s help.”
 
 That was it, wasn’t it? Somehow these six spoiled socialites were the masterminds behind the theft? It seemed highly unlikely to her.
 
@@ -28,7 +28,7 @@ That was it, wasn’t it? Somehow these six spoiled socialites were the mastermi
 
 “True. We came up with most of the actual plan, though,” Gladys corrected, obviously wanting to maintain her fragile hold on the leadership of the gang.
 
-Janette chimed in on cue. “Well, technically, we did hire that scary guy to the dangerous part.” She was the only one who seemed nervous about him.
+Janette chimed in on cue. “Well, technically, we did hire that scary guy to the dangerous parts.” She was the only one who seemed nervous about him.
 
 “Okay, I suppose we did.”
 
@@ -36,21 +36,17 @@ Janette chimed in on cue. “Well, technically, we did hire that scary guy to th
 
 “And we’re very grateful for your sacrifice.”
 
-Clara was quick to speak. “And my father’s credit card paid for the suite.”
-
-Gladys voice lost patience for the first time. “Sure, that goes without saying that we don’t have the financial means to hire--”
-
 “Of course, our parents set up the entire ball, otherwise what was the point of doing any of this?” Hilary pointed out.
 
 “Yes, obviously our parents setting up the ball in the first place, otherwise we’d look like a bunch of complete idiots right now.”
 
-“Speaking of which, we’re going to need food in the suite, in case somebody gets hungry while we’re waiting,” Janette said. Honestly, judging by her appearance, food was always foremost on her mind.
+“Speaking of which, should we have food or something ready for our guest? It might make negotiations go more smoothly if they’re not done on an empty stomach,” Janette said. Honestly, judging by her appearance, food was always foremost on her mind.
 
 “Oh, my mother is in charge of the catering,” Pricilla offered. “I’ll have her order an extra fruit tray and redirect it up here.”
 
 “We still have the problem of getting everything to the ballroom for the big reveal,” Gladys said, trying to steer the conversation back to logistics.
 
-“I think that night shift bellbody, Eugene, fancies me.  I bet I can talk him into it,” Hilda said.
+“I think that night shift bellboy, Eugene, fancies me.  I bet I can talk him into it,” Hilda said.
 
 The curtain was suddenly thrown back, and Sally let out a little shriek of fright as she found herself face to face with an angry-looking man, one of the group that Jack pointed out as “a Tong.”  He wore a black suit and tie and stared at her accusingly with dark eyes.
 
@@ -62,15 +58,15 @@ The man tapped her left shoe, then her right shoe. She looked at him, confused, 
 
 It dawned on her that he was likely determining the size of her feet in order to pick the bucket they would soon be cemented into.
 
-Eventually, he made a similar grunting noise and released her right foot.  Then he mumbled something in a disappointing tone and began shaking the pipe in his hand.
+Eventually, he made a similar grunting noise and released her right foot.  Then he mumbled something in a disappointed tone and began shaking the pipe in his hand.
 
-“Look, honestly, I didn’t hear anything.  I just heard the piano and decided to come listen. I don’t know anything about whatever they were talking about, any plans they might have, or anything involving you, so I’ll just be leaving now. I think I hear my father calling. he’s a very powerful and influential person you know...” She quickly ran out of breath and darted for the elevators.
+“Look, honestly, I didn’t hear anything.  I just heard the piano and decided to come listen. I don’t know anything about whatever they were talking about, any plans they might have, or anything involving you, so I’ll just be leaving now. I think I hear my father calling. he’s a very powerful and influential person you know…” She quickly ran out of breath and darted for the elevators.
 
 The Chinese man didn’t follow.
 
-She caught up with Reggie and myself in the lobby five minutes later babbling something about a grand conspiracy involving the Maestro, a hired Tong assassin, and the Upper Weaver debutante sect.  Whatever they were planning, it appeared the necklace was going to be in a suite on the 19th floor tomorrow night, and everything was going to come to a head at the start of the ball.
+She caught up with Reggie and myself in the lobby five minutes later babbling something about a grand conspiracy involving the Maestro, a hired Tong assassin, and the Upper Weaver debutante sect.  Whatever they were planning, it appeared involved the Tong guy bringing someone to them the next night at 7 PM right before the ball. Somebody they needed to keep under wraps. They apparently had Bellamy involved too?  I didn’t like the sound of that, considering who Bellamy had working for him.
 
-“Look, kid, maybe you shouldn't be involved in this. I'm hired to make sure your perfect evening goes off without incident, and while I appreciate what you've done up to this point, this lollipop is about to get dog hair all over it.”  I briefly explained  about the Bellamy's  zombies and the 90% probability that the mastermind behind all of this was a ventriloquist's dummy that fool Reggie had left unattended in an elevator. She failed to see the relevance of any of it. That's because Nancy Drew hadn't seen the kinds of things I'd seen.  She was too busy looking for footprints in the dust of old abandoned houses and following strange lights in windows. Real detectives don't do foolish things like that, especially without charging someone for it. We’ve been in that stuff, up to our armpits in ghosts and mole men. We've learned our lessons.
+“Look, kid, maybe you shouldn't be involved in this. I'm hired to make sure your perfect evening goes off without incident, and while I appreciate what you've done up to this point, this lollipop is about to get dog hair all over it.”  I briefly explained about Bellamy's zombies and the 90% probability that the mastermind behind all of this was a ventriloquist's dummy that fool Reggie had left unattended in an elevator. She failed to see the relevance of any of it. That's because Nancy Drew hadn't seen the kinds of things I'd seen.  She was too busy looking for footprints in the dust of old abandoned houses and following strange lights in windows. Real detectives don't do foolish things like that, especially without charging someone for it. We’ve been in that stuff, up to our armpits in ghosts and mole men. We've learned our lessons.
 
 “Why can't you just say it, Mr. Chase?”
 
@@ -82,20 +78,20 @@ She caught up with Reggie and myself in the lobby five minutes later babbling so
 
 “A simple, ‘Good job, kid' would suffice.”
 
-“You can have your ‘good job' when you figure out what the brat squad is planning.  Right now you only know the WHEN.  We still need to know HOW Bellamy is involved, WHY the Chinese Tong are involved, WHO actually stole your necklance, and WHERE it is now.”
+“You can have your ‘good job' when you figure out what the brat squad is planning.  Right now you only know the WHEN.  We still need to know HOW Bellamy is involved, WHY the Chinese Tong are involved, WHO actually stole your necklace, and WHERE it is now.”
 
 “Can you at least admit I'm one interrogative pronoun ahead of you?”
 
 “Fine. Good job, kid.  I'll take it from here.”
 
-“The hell you will, old man,” she smiled politely and skipped off toward the elevators.
+“The hell you will, old man.” She smiled politely and skipped off toward the elevators.
 
 Once she was completely out of sight and on her way up, I looked over and saw Reggie, looking not unlike a puppy and slobbering all over his bellhop uniform. “Jeez, kid, do you need to go walkies or what?”
 
-“Isn't  she  wonderful, Mr. Chase.  Smart, tough, wise--"
+“Isn't she wonderful, Mr. Chase.  Smart, tough, wise--"
 
-“---and looks great in knee-socks and saddle shoes?”
+“—and looks great in knee-socks and saddle shoes?”
 
-“Yeah...”
+“Yeah…”
 
-I smacked the back of his head so hard his hat flew off. “Knock it off! I need your head in the game! My eyes and ears, remember?  Now come on, we've got work to do.”
+I smacked the back of his head so hard his hat flew off. “Knock it off! I need your head in the game! My eyes and ears, remember?  Now come on, we've got work to do.”  

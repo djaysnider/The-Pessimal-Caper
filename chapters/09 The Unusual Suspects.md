@@ -4,7 +4,7 @@
 
 It was the dinner rush, and I still had very little to go on.  A stranger with a violin case and wide-brimmed hat, a former Yakuza assassin who, by his own admission, was working, but not for the Chinese Tong, and at least by his story, not after the necklace, which was already stolen anyway.  If Peyton was right, one of the mothers was certainly behind the whole thing, but given the window in which the crime could have been perpetrated, they were all preoccupied with decorated or otherwise tormenting the hotel staff.  Unless, of course, that was an intentional distraction while a hired expert thief did the job.
 
-   I cornered Reggie in the back hall near the service elevator which he was loading with another cart of bags from the new arrivals. “Kid, I need a favor.”
+I cornered Reggie in the back hall near the service elevator which he was loading with another cart of bags from the new arrivals. “Kid, I need a favor.”
 
 He snapped to attention faster than a boot sailor on his first trip to an Amsterdam brothel. “Yes, Mr. Chase?”
 
@@ -116,7 +116,7 @@ We retreated to the service corridor. The zombie kept waking toward us, if slowl
 
 “We’ve got to alert Mr. Weatherby!  He’ll know what to do.”
 
-That’s where the sneaking supicion that I’d missed something crept into my brain. “Wait a minute,” I said as I stopped and turned around. The zombie entered the hotel from the loading dock and continued toward us. “Is that...”
+That’s where the sneaking supicion that I’d missed something crept into my brain. “Wait a minute,” I said as I stopped and turned around. The zombie entered the hotel from the loading dock and continued toward us. “Is that…”
 
 Reggie nodded and finished the sentence. “He’s carrying a trombone!”
 
@@ -126,19 +126,19 @@ I feel no shame in telling you I screamed like a girl.
 
 “What the hell is that?!”
 
-“That’s Doctor Whispers.”
+“That’s Doctor Whimple.”
 
-“Doctor Whispers?!”
+“Doctor Whimple?!”
 
 “Mr. Burkman is a ventriloquist.”
 
-I have rules about ventriloquist dummies.  I can handle a vaudeville performer who makes his living telling lies without moving his lips. That’s most of the lowlifes I either vote for or get paid to catch.  I understand them. My problem is with their little wooden friends, like Dr. Whispers here. They’re the real stars of the show.  Burkman does all the work; Whispers gets the laughs and the name recognition.
+I have rules about ventriloquist dummies.  I can handle a vaudeville performer who makes his living telling lies without moving his lips. That’s most of the lowlifes I either vote for or get paid to catch.  I understand them. My problem is with their little wooden friends, like Doctor Whipple here. They’re the real stars of the show.  Burkman does all the work; Whimple gets the laughs and the name recognition.
 
 “You could have warned me!”
 
 “What? It’s just a Ventriloquist dummy.”
 
-“For now! You’ve seen how these things operate: they can say anything they want, things that would normally get you cut up and fed to the fish in the bay, and they get away with it, smug little bastards, because the guy with his hand up the back says, ‘Now, Doctor Whispers, you really shouldn’t say and do things like that...’ as if the dummy thought of it himself.  I know footsoldiers in the mob who would kill for that kind of power!”
+“For now! You’ve seen how these things operate: they can say anything they want, things that would normally get you cut up and fed to the fish in the bay, and they get away with it, smug little bastards, because the guy with his hand up the back says, ‘Now, Doctor Whimple, you really shouldn’t say and do things like that…’ as if the dummy thought of it himself.  I know footsoldiers in the mob who would kill for that kind of power!”
 
 “Okay, but Mr. Burkman isn’t even here!”
 
@@ -148,7 +148,7 @@ The zombie didn’t.
 
 It simply got back in the car, with the potentially cursed ventriloquist dummy, and pulled the door closed. We both stopped, completely dumbfounded. Seconds later, the elevator began to ascend back to the ballroom.
 
-Reggie finally picked his jaw up off the floor.  “Ummmmm ... should we do something?”
+Reggie finally picked his jaw up off the floor.  “Ummmmm … should we do something?”
 
 "About what?" I asked.
 
