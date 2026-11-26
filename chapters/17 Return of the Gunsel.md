@@ -1,5 +1,7 @@
 # The Return of the Gunsel
 
+![a_dramatic_black_and_white_film_noir_style_scene_i (1)](./images/a_dramatic_black_and_white_film_noir_style_scene_i.png)
+
 Reggie and Sally made their way from the lounge back to the main lobby area while I took the back exit out of the lounge, through the kitchen, pantry, and back to the loading dock that seemed to be ground zero for everything. In the lobby, Carson was frantically pacing the floor and was visibly relieved when he saw the kid.
 
 “O'Grady! O'Grady" he called. Reggie pretended not to hear him and made a beeline for the front desk with Sally. “O'Grady, I'm calling you!”
