@@ -1,5 +1,7 @@
 # The Breakfast Club
 
+![a_cinematic_black_and_white_1940s_film_noir_style](./images/a_cinematic_black_and_white_1940s_film_noir_style.png)
+
 It stumbled into the hotel restaurant, having already stopped by the kitchen to pick up an ice pack.  I spotted Peyton Halston-Kensington sitting with Charles Montana, eating breakfast.
 
 “Mmmm, coffee, yes, I’d love some,” I said as I stumbled up to them and collapsed in the fourth chair at their table.  They all sat up instantly in interest.
